@@ -1,5 +1,6 @@
 PAN=/C/Users/Tom/AppData/Local/Pandoc/pandoc.exe 
 EBC=/C/Program\ Files/Calibre2/ebook-convert.exe
+DROPBOX='/C/Users/Tom/Documents/My Dropbox/Public'
 echo "<div style='page-break-before:always;'></div><h1>Inside Dust Jacket</h1><br/>" | cat - insidedustjacket.md > insidedustjacket.md.tmp
 sed -i '/<div style="text-align/,$d' insidedustjacket.md.tmp
 echo "<div style='page-break-before:always;'></div><h1>Back of Dust Jacket</h1><br/>" | cat - backofdustjacket.md > backofdustjacket.md.tmp
@@ -22,12 +23,19 @@ while ((i <=LAST_CHAP)); do
   let i++
 done
 
-FNAME="ofviolets_ch1_${LAST_CHAP}_`date +%m%d%Y`"
+FNAME="ofvioletsandlicorice_ch1_${LAST_CHAP}_`date +%m%d%Y`"
 
 $PAN -t epub --epub-cover-image=cover.jpg $CHAPLIST -o $FNAME.epub -V title:""
 #$PAN $CHAPLIST -o $FNAME.pdf -V title:""
 
 "$EBC" $FNAME.epub $FNAME.mobi
+
 #"$EBC" $FNAME.epub $FNAME.pdf --margin-left 25 --margin-right 25 --preserve-cover-aspect-ratio
+
+rm "$DROPBOX"/*.mobi
+rm "$DROPBOX"/*.epub
+cp $FNAME.* "$DROPBOX"/.
+sed -i "s/779\/ofviolets.*\.mobi/779\/$FNAME.mobi/" book.html
+sed -i "s/779\/ofviolets.*\.epub/779\/$FNAME.epub/" book.html
 
 rm *.tmp
