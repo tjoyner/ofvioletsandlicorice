@@ -26,7 +26,7 @@ Beyond the hazelnuts, which Daniel recognized, they crossed the vineyard, now re
 
 "Tell me Daniel, if you could let a farm go like that..."
 
-"[You've also played a part...](http://ofvioletsandlicorice.tumblr.com/notes#youalso)"
+"[You've also played a part...](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#youalso)"
 
 Giulio was sitting on a wooden bench, Flop, sniffing the ground, ran back and forth, slipping on hazelnuts, and returned to the yard wagging his tail around Daniel's legs.
 
@@ -50,13 +50,14 @@ Suddenly Daniel felt the scent of coffee wafting from a gas stove, and the gurgl
 
 Amalia came into the kitchen while Daniel turned off the gas. 
 
-"Find two more [syringes](http://ofvioletsandlicorice.tumblr.com/notes#syringes)," she said, going to look for cups in the cupboard.
+"Find two more [syringes](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#syringes)," she said, going to look for cups in the cupboard.
 
-"[If you don't also find them stuck in an arm or a foot, count yourself lucky](http://ofvioletsandlicorice.tumblr.com/notes#ifyoudont)..." Giulio said bitterly.
+"[If you don't also find them stuck in an arm or a foot, count yourself lucky](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ifyoudont)..." Giulio said bitterly.
 
 Amalia poured the coffee in silence. Looking at Flop, she said "Maybe we should keep a dog, a guard dog..."
 
-"[If no one comes, we'll poison it after a few days](http://ofvioletsandlicorice.tumblr.com/notes#ifnoonecomes)".
+"[If no one comes, we'll poison it after a few
+days](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ifnoonecomes)".
 
 Daniel went out to the yard with a cup of coffee and walked toward what was left of the vineyard. He went down the hill, soft now in the full sun, and between weeds and briars glimpsed new shoots and old rotten poles. Daniel thought it would require a lot of work to put it back on track, but that it would be worth it. The green pigment of the berries contrasted here and there with the tender colored vine leaves and the black thorn brambles: it was a chaos of vegetation that called for new geometry.
 
@@ -78,7 +79,7 @@ Amalia leaned against a stone bath. She ran a hand through her hair, her face ha
 
 "My brother told you," she said, "that our father died in this vineyard, taken by lightning. He was coming to look for me. He thought I was in the rows, while I was in the barn playing with a stupid rag doll. It's all here."
 
-Amalia closed her eyes and shook her head. Daniel wanted to hug her. He did not. He said, "[Don't you think that by this time your father is part of this vineyard](http://ofvioletsandlicorice.tumblr.com/notes#dontyouthink)?"
+Amalia closed her eyes and shook her head. Daniel wanted to hug her. He did not. He said, "[Don't you think that by this time your father is part of this vineyard](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dontyouthink)?"
 
 Amalia looked at him with pride, a look of defiance. Then she got up from the edge of the bath and walked towards the yard. She went into the kitchen, slamming the door.
 
@@ -109,7 +110,7 @@ It would be nice to have a short vacation with his daughter, it had not happened
 
 He looked at Flop, who was crouched near the door. He wondered what he would do with Flop if Nicole came. There were too many uncertainties in his thoughts. He lay down on the bed, he needed to rest before going to breakfast.
 
-When he came out on Via Roma he smelled an intense aroma of cocoa and vanilla that seemed to scrape his throat, so he turned towards Via Toti, as always followed by Flop. He was looking for a restaurant and was lost among the narrow streets, the low houses with balconies covered with geraniums, antique shops and hardware stores, crowded wine shops and bakeries displaying special breads of all shapes baked in wood-burning ovens. He thought he saw Amalia coming out of a shop. She wore a white dress tied at the waist by a wide blue belt. He stopped in front of the entrance, it was a hairdresser, read the name, Egoist, smiled and ducked towards a piazza with medieval towers and tall bell towers. He saw a sign *Tavern of the Poets*: With that title, Daniel thought, they wouldn't stop dogs from entering.  He went in. The atmosphere was pleasant, with its small tables and and shelves of wine on the walls, it had the appearance of a bistro. He sat and looked at the short list of daily specials. He asked for [bagna cauda](http://ofvioletsandlicorice.tumblr.com/notes#bagnacauda), and a plate of [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/notes#vitellotonnato) with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of bread stick, coarse and uneven.
+When he came out on Via Roma he smelled an intense aroma of cocoa and vanilla that seemed to scrape his throat, so he turned towards Via Toti, as always followed by Flop. He was looking for a restaurant and was lost among the narrow streets, the low houses with balconies covered with geraniums, antique shops and hardware stores, crowded wine shops and bakeries displaying special breads of all shapes baked in wood-burning ovens. He thought he saw Amalia coming out of a shop. She wore a white dress tied at the waist by a wide blue belt. He stopped in front of the entrance, it was a hairdresser, read the name, Egoist, smiled and ducked towards a piazza with medieval towers and tall bell towers. He saw a sign *Tavern of the Poets*: With that title, Daniel thought, they wouldn't stop dogs from entering.  He went in. The atmosphere was pleasant, with its small tables and and shelves of wine on the walls, it had the appearance of a bistro. He sat and looked at the short list of daily specials. He asked for [bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), and a plate of [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of bread stick, coarse and uneven.
 
 <!-- Page 41 -->
 He ate with pleasure: the bread was good,  the olive oil was good, and the wine, a light Dolcetto, seemed respectable. He ended with a cup of cooked fruit and a large coffee. He gave two more pieces of breadsticks to Flop, then asked for a bowl of water. When Flop was finished drinking, he paid and they left.
@@ -122,10 +123,11 @@ He saw a car stop on Via Maestra and heard a horn beep. It was a silver Toyota S
 
 "You've kidnapped me," he said.
 
-They passed through narrow villages and [countryside with enclosed industrial warehouses](http://ofvioletsandlicorice.tumblr.com/notes#countryside), a long row of hangars that blocked the view of the hills. Outlet, Trony, Casa della Luce, Divani & Divani: showrooms displaying tractors and Mercedes, [Magazzini del Giocattolo, Casa del Mobile da Giardino, Casa del Legno](http://ofvioletsandlicorice.tumblr.com/notes#magazzini), colored blue, yellow, and candy pink. Warehouses that made the streets look like one giant Lego.
+They passed through narrow villages and [countryside with enclosed industrial warehouses](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#countryside), a long row of hangars that blocked the view of the hills. Outlet, Trony, Casa della Luce, Divani & Divani: showrooms displaying tractors and Mercedes, [Magazzini del Giocattolo, Casa del Mobile da Giardino, Casa del Legno](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#magazzini), colored blue, yellow, and candy pink. Warehouses that made the streets look like one giant Lego.
 
 <div style="text-align: center">
 <a href="http://ofvioletsandlicorice.tumblr.com/post/128665608999/of-violets-and-licorice-chapter-2">&larr;&nbsp;Chapter 2</a>&nbsp;&nbsp;
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129421655504/of-violets-and-licorice-chapter-4">Chapter 4&nbsp;&rarr;</a>
 
 </div>
 <script>

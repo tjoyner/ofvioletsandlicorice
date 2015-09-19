@@ -10,7 +10,7 @@ Daniel went into the bathroom, rinsed his mouth and washed his face, then he pic
 
 "I'm listening."
 
-"We found Nicole. She's all right, she's in the hospital with Vincent. [One week and we put her back on her feet](http://ofvioletsandlicorice.tumblr.com/notes#oneweek)..."
+"We found Nicole. She's all right, she's in the hospital with Vincent. [One week and we put her back on her feet](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#oneweek)..."
 
 "Ok, and after?"
 
@@ -28,7 +28,8 @@ No, Daniel knew, she wouldn't allow it. That, too, was a way to blackmail him, t
 
 "...Without asking Laurencine about it?"
 
-"We can always tell her that [it was a sudden decision](http://ofvioletsandlicorice.tumblr.com/notes#itwasasudden), Marc."
+"We can always tell her that [it was a sudden
+decision](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#itwasasudden), Marc."
 
 "You know it's not believable..."
 
@@ -44,7 +45,7 @@ Daniel went to the bathroom to take a shower, then went down and asked for stron
 
 "If it's not hot enough to burn...."
 
-"[The coffee overpowers the flavors](http://ofvioletsandlicorice.tumblr.com/notes#thecoffee)."
+"[The coffee overpowers the flavors](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thecoffee)."
 
 "I never drink it before tasting wine... but even if I did I could feel what I was drinking," Daniel answered him, smiling.
 
@@ -120,7 +121,7 @@ He asked "What kind of people are the Giacosa?"
 
 "They don't have the ways of those who plant vineyards," said Daniel.
 
-"[Whatever that is](http://ofvioletsandlicorice.tumblr.com/notes#whateverthat), no one here has the ways of the farmer, with the rare exceptions of the old, young ecologists, the greens, and those nostalgic for Slow Food. The rest is chemistry and mechanics in the hands of winemakers, technicians, advertisers, and international representatives."
+"[Whatever that is](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#whateverthat), no one here has the ways of the farmer, with the rare exceptions of the old, young ecologists, the greens, and those nostalgic for Slow Food. The rest is chemistry and mechanics in the hands of winemakers, technicians, advertisers, and international representatives."
 
 "It's like that everywhere: wine is an industry. How do you stick out," Daniel said petting the dog, which returned the caress by licking the back of his hand.
 
@@ -130,7 +131,7 @@ They arrived at the fork to Neive.
 
 Luciano slowed the car and took a dirt road, stopping after a few hundred meters. He got out, Daniel and the dog followed him. Luciano slipped between the rows, and Daniel and the dog walked parallel to him. After 30 meters they came to a wall of old stones, went around it, and came out on the portico of a church.
 
-"It's from the 12th century, but if you don't already know that, you can't see it, and there's no one to tell you. Inside it's decorated with frescoes and [it's where they keep the tools](http://ofvioletsandlicorice.tumblr.com/notes#itswhere)."
+"It's from the 12th century, but if you don't already know that, you can't see it, and there's no one to tell you. Inside it's decorated with frescoes and [it's where they keep the tools](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#itswhere)."
 
 Daniel tried to look through the cracks running through the wood of the door.
 
@@ -155,19 +156,20 @@ Daniel stood up, followed by the dog, walking, brushing the leaves, leaning on t
 
 "I'd like to sit in a bar...  can we go to Mango?" said Daniel, climbing into the car, followed by the dog. 
 
-"[In the bars there's a return to drinking wine, anything but soft drinks](http://ofvioletsandlicorice.tumblr.com/notes#inthebars). Like they used to..."
+"[In the bars there's a return to drinking wine, anything but soft
+drinks](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#inthebars). Like they used to..."
 
 Climbing uphill, they crossed hazelnut groves, clean as a billiard cloth. Rectangles of corn, vines low and dense. The entrance to Mango looked like a construction site, with cranes and scaffolding for cleaning the facade, fixing cracks in the old walls.
 
-"The Germans returned in peace... [but mostly in Langhe no one looks at anyone's appearance](http://ofvioletsandlicorice.tumblr.com/notes#butmostly). It's the wallet that sings."
+"The Germans returned in peace... [but mostly in Langhe no one looks at anyone's appearance](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#butmostly). It's the wallet that sings."
 
-At the bar in the piazza, Luciano ordered a Poretta beer and Daniel asked for a glass of Sottimano Cottà.
+At the bar in the piazza, Luciano ordered a Poretta beer and Daniel asked for a glass of Sottimano Cott&agrave;.
 
 "Speaking of Sottimano, I believe I've had a revelation...ask for a bit of castelmagno cheese, it'll accompany it well."
 
 Daniel smiled, and said "Why don't the Giacosa siblings take care of Ginotta? Is it a vineyard?"
 
-"A farm above Elvio, below Madonna di Como, there are hectares of vines [along the river](http://ofvioletsandlicorice.tumblr.com/notes#alongtheriver). There, lightning took their father during a summer storm. Since then Amalia no longer wants to touch the land, and she's also stopped her brother, who instead wanted to restore the vineyard and the farm... women, when they get an idea in their heads, it sets like cement..."
+"A farm above Elvio, below Madonna di Como, there are hectares of vines [along the river](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alongtheriver). There, lightning took their father during a summer storm. Since then Amalia no longer wants to touch the land, and she's also stopped her brother, who instead wanted to restore the vineyard and the farm... women, when they get an idea in their heads, it sets like cement..."
 
 Daniel slowly drank his glass of Barbaresco, picking at pieces of seasoned Murrazzano toma.
 
@@ -199,10 +201,10 @@ Daniel shook his head and stroked the beast, who had rested his muzzle on his sh
 
 "Let's try to find him an owner..."
 
-"[If there's one to be found, I guess](http://ofvioletsandlicorice.tumblr.com/notes#iftheresone)."
+"[If there's one to be found, I guess](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#iftheresone)."
 <br/><br/><br/>
 
-"[One assesses a wine with chemistry that records its constituents](http://ofvioletsandlicorice.tumblr.com/notes#oneassesses), while tasting records our reactions to and the interactions between those components."
+"[One assesses a wine with chemistry that records its constituents](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#oneassesses), while tasting records our reactions to and the interactions between those components."
 
 This was the lesson Daniel liked least, all theoretical, abstract, but he inevitably moved on to practical examples.
 
@@ -212,9 +214,9 @@ Daniel had returned to the *Tastevin* to face the 19 for the second lesson. He'd
 
 Daniel felt that they had an increased number of participants for this talk, compared to the previous evening: local faces, severe rural faces, and gentlemen of excessive elegance for the place and time.
 
-"Let's say that there are some red wines, and we're going to see that it's red, let's say that some wines are less red, rosés, and then say that there are whites. But no, they aren't white, but green, yellow, and gold, and which green, and which yellow, and which shade of gold. We talk about colors, but the wines are changing, they are alive, their color can never be steady, sharp. Have you heard of the basic colors? Red, orange, yellow, green, blue and violet are the basic colors of wine, from their encounters and intersections arise shades. 
+"Let's say that there are some red wines, and we're going to see that it's red, let's say that some wines are less red, ros&eacute;s, and then say that there are whites. But no, they aren't white, but green, yellow, and gold, and which green, and which yellow, and which shade of gold. We talk about colors, but the wines are changing, they are alive, their color can never be steady, sharp. Have you heard of the basic colors? Red, orange, yellow, green, blue and violet are the basic colors of wine, from their encounters and intersections arise shades. 
 
-"From the uniform green buds in July begins the maturation and coloring of wine [under the play of time](http://ofvioletsandlicorice.tumblr.com/notes#undertheplay), under the sky, and then it continues in the barrel. For the reds: from blue to violet, from violet to red, red to purple, from purple to orange, from orange to brick red. For whites: from green to yellow, from yellow to amber, from amber to gold, from gold to brown."
+"From the uniform green buds in July begins the maturation and coloring of wine [under the play of time](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#undertheplay), under the sky, and then it continues in the barrel. For the reds: from blue to violet, from violet to red, red to purple, from purple to orange, from orange to brick red. For whites: from green to yellow, from yellow to amber, from amber to gold, from gold to brown."
 
 Daniel paused, raised his glass to the candle light and rotated it slowly, letting the legs leave their soft arches on the inside of the 'Piemontese.' He was working with a Barolo, and he looked at the crowd. They were attentive, they spoke softly. He had them. Daniel lifted his glass to his nose. He inhaled slowly. 
 
@@ -239,7 +241,8 @@ He gave him a light clap on the shoulder with his wide hand and walked away. Giu
 
 "Do you have a name?" he asked, taking his head in his hands. "And what would it be, and how can we find it out?"
 
-"So many questions. [Everything isn't about wine](http://ofvioletsandlicorice.tumblr.com/notes#everythingisnt)..."
+"So many questions. [Everything isn't about
+wine](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#everythingisnt)..."
 
 The voice came to him from behind with a tone that was firm and calm. Daniel turned around. It was Amalia, holding in one hand a bottle from the tasting and two glasses that she placed, passing Daniel, on a small round table made of stone.
 
@@ -247,7 +250,7 @@ The voice came to him from behind with a tone that was firm and calm. Daniel tur
 
 "Is it possible to have both?"
 
-Daniel heard her laugh, a restrained laugh from the throat, as he had imagined, a bit youthful, [that answered and satisfied his intuition](http://ofvioletsandlicorice.tumblr.com/notes#thatanswered).
+Daniel heard her laugh, a restrained laugh from the throat, as he had imagined, a bit youthful, [that answered and satisfied his intuition](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thatanswered).
 <!-- Page 33 --> 
 
 Amalia disappeared while Daniel went to sit at the table, followed by the dog that crouched at his foot, again placing his muzzle on his shoes.
@@ -264,11 +267,11 @@ He looked at Amalia in the faint light filtering through the windows and the doo
 
 She was a brusque woman, Daniel thought, who hid a capacity for sweetness. She was wearing a long blue skirt, and a silver silk blouse with mother of pearl buttons so far apart that from time to time a breast appeared between the gaps with a whiteness of snow, a small and tight bow that caught Daniel's gaze in its roundness just below the nipple.
 
-He tried to divert his attention from the white flesh that agitated him. He looked up at her eyes, [which reflected purple in the night](http://ofvioletsandlicorice.tumblr.com/notes#whichreflectedpurple).  
+He tried to divert his attention from the white flesh that agitated him. He looked up at her eyes, [which reflected purple in the night](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#whichreflectedpurple).  
 
 Amalia filled the glasses and pushed the tray towards the center of the table. Daniel took a slice of salami and a slice of plain bread. He gave a piece to the dog.
 
-"[What are you going to do with it?](http://ofvioletsandlicorice.tumblr.com/notes#whatareyou)?" Amalia asked, taking a sip of wine.
+"[What are you going to do with it?](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#whatareyou)?" Amalia asked, taking a sip of wine.
 
 "I haven't the slightest idea... I hoped it would tire of my company, and go back to where it came from."
 

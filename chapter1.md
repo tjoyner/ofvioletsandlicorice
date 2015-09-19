@@ -33,7 +33,7 @@ Luciano took a swig, then took the small bottle and started towards the hotel ex
 
 She was at the kitchen window, drying an espresso cup, when she saw a man emerge from the colors of the hazelnut trees. He came walking on all fours looking at the ground, like he'd lost something. Amalia was curious: the man had strong shoulders, a large, golden-brown head, wide hands and a prominent nose. 
 
-She wondered what he was doing on the ground, there in [Elvio](http://ofvioletsandlicorice.tumblr.com/notes#elvio), with his nose in the grass. Was he drunk, maybe, or was he sick? 
+She wondered what he was doing on the ground, there in [Elvio](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#elvio), with his nose in the grass. Was he drunk, maybe, or was he sick? 
 
 Amalia put the cup and towel on the windowsill, left the kitchen, and went down to the yard. The old house was in such a state of abandon that they had more than once found non-EU refugees&nbsp;and drug addicts there. 
 
@@ -127,7 +127,7 @@ A magpie quickly crossed the road, tapping the hood of the Mercedes.
 
 They started to hear shots in the distance.  
 
-"Cannons, on [Guarene](http://ofvioletsandlicorice.tumblr.com/notes#guarene)... here, the weather's like this: clouds take off from [Monviso or Bisalta](http://ofvioletsandlicorice.tumblr.com/notes#monviso) and bring hail. Then it's goodbye to the harvest."
+"Cannons, on [Guarene](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#guarene)... here, the weather's like this: clouds take off from [Monviso or Bisalta](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#monviso) and bring hail. Then it's goodbye to the harvest."
 
 <!-- Page 8 -->
 
@@ -139,7 +139,7 @@ Luciano climbed the steps and disappeared inside. The stranger slowly got out of
 
 He was drawn to a photo of a half-wrecked vineyard, where, in the center, there lay a great cross of Jesus. He went closer to see it better.
 
-"That crazy [Attilio](http://ofvioletsandlicorice.tumblr.com/notes#attilio)... [look what his vineyard was reduced to](http://ofvioletsandlicorice.tumblr.com/notes#lookwhat)..."
+"That crazy [Attilio](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#attilio)... [look what his vineyard was reduced to](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#lookwhat)..."
 
 Luciano was in back of the stranger, still buttoning his pants.
 
@@ -147,7 +147,8 @@ Luciano was in back of the stranger, still buttoning his pants.
 
 The stranger shook his head. He went even closer to the photograph: Christ with his head face down, around him the vines were uprooted.
 
-"It was a bad night, for everyone. For Attilio the worst, [it's brought back the memory of it](http://ofvioletsandlicorice.tumblr.com/notes#itsbrought)."
+"It was a bad night, for everyone. For Attilio the worst, [it's brought back the memory of
+it](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#itsbrought)."
 
 They heard a voice, and footsteps behind the bar. "Would you like something to drink?"
 
@@ -165,7 +166,7 @@ The innkeeper nodded, filling a glass of white. The foreigner took the glass, lo
 
 Then Luciano went out to the piazza, where the stranger was waiting for him, already sitting in the car.
 
-"Wouldn't it have been better to offer an Arneis, a Favorita, or a Blangè from this area?" he asked when Luciano resumed driving; then he closed his eyes as if he wished to sleep or to wander in his own thoughts.
+"Wouldn't it have been better to offer an Arneis, a Favorita, or a Blang&egrave; from this area?" he asked when Luciano resumed driving; then he closed his eyes as if he wished to sleep or to wander in his own thoughts.
 <br/><br/><br/>
 
 The room was simply furnished, with no wallpaper, painted a lemon tint, with a double bed, a wardrobe made of light wood, and a walnut desk that housed a small TV with a minibar on the side. There was a warmth from the overhead light and lamps. The bathroom, with white and black mosaic tiles, was large with a bath and shower and two large rectangular sinks. There was no shortage of bars of soap, lavender bubble bath, and shampoo. 
@@ -197,7 +198,7 @@ Helene replied that she would put him through to the doctor.
 
 "Yesterday...she also didn't know where she could possibly be...and now she's not answering."
 
-After a silent pause, Marc said: "Daniel, it's not the first time. I'm worried, but not too much. It gets to the point where you can't go back. I promised you that we'll succeed. [Rest easy](http://ofvioletsandlicorice.tumblr.com/notes#resteasy). I'm thinking about her."
+After a silent pause, Marc said: "Daniel, it's not the first time. I'm worried, but not too much. It gets to the point where you can't go back. I promised you that we'll succeed. [Rest easy](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#resteasy). I'm thinking about her."
 
 Daniel nodded, as if Marc could see him, and put the receiver down before saying thanks. He got out of bed and took refuge in the bathroom, under a hot shower.
 <br/><br/><br/><!-- Page 11 --> 
@@ -208,7 +209,7 @@ He sat down at the table, and was soon joined by Silvio, who offered him a menu.
 
 "I only need a large salad," said Daniel, "and a bottle of non-carbonated mineral water."
 
-"You came to Piedmont for fasting, eh?" Silvio asked cheerfully, [with a confidence based on his demeanor](http://ofvioletsandlicorice.tumblr.com/notes#withaconfidence): the Frenchman had a blue gaze and an amiable smile. And in fact, Daniel smiled.
+"You came to Piedmont for fasting, eh?" Silvio asked cheerfully, [with a confidence based on his demeanor](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#withaconfidence): the Frenchman had a blue gaze and an amiable smile. And in fact, Daniel smiled.
 
 "No no," he said, "I'm a little overweight and I only do this in the morning. I'll make up for it tonight."
 
@@ -291,7 +292,7 @@ Daniel shrugged his shoulders and looked her in the eye. Amelia shifted her gaze
 
 Amalia had become serious and on her hands Daniel saw the thin veins become more blue. How old would she be? 35, maybe 40?
 
-He said: "Quality: quality and competence wins over everything." [Then, not having said enough](http://ofvioletsandlicorice.tumblr.com/notes#thennothaving), added "And fantasy."
+He said: "Quality: quality and competence wins over everything." [Then, not having said enough](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thennothaving), added "And fantasy."
 
 Daniel watched Amelia's hand leave the table and slip into her mass of red hair. 
 
@@ -301,7 +302,7 @@ She didn't seem convinced, or maybe she was just scared. She got up from the tab
 
 "Can I ask your brother Giulio to help prepare the decanters?"
 
-Amalia agreed with a [shrug of her shoulders](http://ofvioletsandlicorice.tumblr.com/notes#shrugofher), indifferent, as if to say that it was up to him, then walked toward the door behind the counter. Daniel breathed in the scent of linden, while looking at the thick railway embankment &ndash; his grandfather was stationmaster at Villefranche, and he'd never forgotten that smell which gave him a sense of adventure, bewilderment, and surprise. He put the half-empty glass on the table and walked out into the warm air of Via Maestra. 
+Amalia agreed with a [shrug of her shoulders](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#shrugofher), indifferent, as if to say that it was up to him, then walked toward the door behind the counter. Daniel breathed in the scent of linden, while looking at the thick railway embankment &ndash; his grandfather was stationmaster at Villefranche, and he'd never forgotten that smell which gave him a sense of adventure, bewilderment, and surprise. He put the half-empty glass on the table and walked out into the warm air of Via Maestra. 
 
 The girls had discovered the navel. They laughed, walking or sitting at tables along the street crowded with Japanese, Germans, and the English: fond of wine, good food, and the Italian landscape.
 
@@ -326,21 +327,23 @@ Silvio shrugged, continuing to clean the glasses. "Globalization, Luciano. The F
 
 "Maybe not God, but the prices, yes."
 
-"Yes, and really Giulio is the first. He reveres designer wine... you know he doesn't give a damn about a good Barbareso, Nebbiolo or Dolcetto. He likes to call the wine 'Cappuccino,' 'Crest Beak,' '[Point of Light](http://ofvioletsandlicorice.tumblr.com/notes#pointoflight),' 'Harlequin,' order grapes, mix, blend: Wine without vines..."
+"Yes, and really Giulio is the first. He reveres designer wine... you know he doesn't give a damn about a good Barbareso, Nebbiolo or Dolcetto. He likes to call the wine 'Cappuccino,' 'Crest Beak,' '[Point of Light](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#pointoflight),' 'Harlequin,' order grapes, mix, blend: Wine without vines..."
 
-"[You know how it is, with Amalia](http://ofvioletsandlicorice.tumblr.com/notes#youknowhow)..."
+"[You know how it is, with Amalia](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#youknowhow)..."
 
-"[How Amalia has changed](http://ofvioletsandlicorice.tumblr.com/notes#howamalia)."
+"[How Amalia has changed](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#howamalia)."
 
-"[Giulio would like to work the vineyard](http://ofvioletsandlicorice.tumblr.com/notes#guiliowould)."
+"[Giulio would like to work the vineyard](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#guiliowould)."
 
 "Yeah, but for Amelia it's a cemetery..."
 
-"[It's still her father down there: wounded](http://ofvioletsandlicorice.tumblr.com/notes#itsstillher)..."
+"[It's still her father down there:
+wounded](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#itsstillher)..."
 
 "There's always been death in the vineyard, first because of famine, then the Germans, then with tractors when things got better. Just like going to sea or working in a factory, Luciano. And, knock on wood: like driving a car."
 
-Luciano asked for another beer. He said, "Isn't it too late to do a tasting [of real French wine](http://ofvioletsandlicorice.tumblr.com/notes#ofrealfrench)?"
+Luciano asked for another beer. He said, "Isn't it too late to do a tasting [of real French
+wine](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ofrealfrench)?"
 
 <!-- Page 18 -->
 Silvio leaned over. "I agree, it's the first of May. They do tastings in November, October. But you go to find out the commitments, the possibilities. Isn't there air conditioning at the *Tastevin*? The play is always running...at this point, we do theater."
@@ -413,7 +416,7 @@ Daniel looked at her. She was beautiful. Japanese with long legs, a slender tors
 
 "I like Italian cities, they are quiet, slow, like our provinces. They don't have fast trains or subways. And the stores are better than, or as good as, Tokyo, but with discounted prices. Have you seen how many Armani, Missoni, Dolce &amp; Gabbana, there are in *Donne Vincenti*, in front of the *Tastevin*? 
 
-Daniel hadn't looked at the labels, to him they appeared to be the usual clothes that were taken from the display window, [worn, but never as well as on a lifeless mannequin](http://ofvioletsandlicorice.tumblr.com/notes#wornbut). Like a wine that's put in a [conservative bottle](http://ofvioletsandlicorice.tumblr.com/notes#likeawine), but also [a little gaudy](http://ofvioletsandlicorice.tumblr.com/notes#alittlegaudy), with its label and cork, its images and graphics, to catch a distracted eye, advertising, or television. [While to him, the wine and its essence, continued to speak to him with its fermentation, its desire to oxygenate, its desire to settle down inside the transparent glass.](http://ofvioletsandlicorice.tumblr.com/notes#whiletohim) 
+Daniel hadn't looked at the labels, to him they appeared to be the usual clothes that were taken from the display window, [worn, but never as well as on a lifeless mannequin](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#wornbut). Like a wine that's put in a [conservative bottle](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#likeawine), but also [a little gaudy](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alittlegaudy), with its label and cork, its images and graphics, to catch a distracted eye, advertising, or television. [While to him, the wine and its essence, continued to speak to him with its fermentation, its desire to oxygenate, its desire to settle down inside the transparent glass.](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#whiletohim) 
 
 Daniel looked at Maria. He'd never had a story, much less a story with an Asian. He looked at her eyes, her mouth, her bust like a teenager. He asked, switching to the familiar, "Why are you here? How did you come to Alba?"
 

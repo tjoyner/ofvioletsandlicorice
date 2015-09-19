@@ -7,7 +7,23 @@ echo "<div style='page-break-before:always;'></div><h1>Back of Dust Jacket</h1><
 sed -i '/<div style="text-align/,$d' backofdustjacket.md.tmp
 # TODO: update last chapter
 typeset -i i LAST_CHAP
-LAST_CHAP=3
+LAST_CHAP=4
+# TODO: add new chapter's id to this list
+UPDATE_LIST="126996872554 insidedustjacket.md 
+             127000556994 backofdustjacket.md 
+             129354078274 notes.html
+             126100415919 chapter1.md 
+             128665608999 chapter2.md 
+             129232051344 chapter3.md
+             129421655504 chapter4.md
+             129355307919 book.html
+             "
+set -- $UPDATE_LIST 
+while [ ! -z "$1" ]  # while $1 is not empty
+do
+  /c/perl64/bin/perl ../api/updateblog.pl $1 $2
+  shift 2
+done
 # For title based on chapters and date
 #echo "---" > title.md.tmp
 #echo "title: Of Violets and Licorice, Chapter $LAST_CHAP, `date '+%b %d %Y'`" >> title.md.tmp
