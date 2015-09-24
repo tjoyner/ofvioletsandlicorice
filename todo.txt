@@ -1,0 +1,20 @@
+
+/[^\x00-\x7F]
+
+To do when adding a new chapter:
+ Double check spacing (<br/>s) and links
+ utf-8 chars
+ Point new chapter to previous chapter
+ Update end of previous chapter to link to it
+ Add tumblr page with tags
+   #wine #slowfood #piedmont #italy #fiction #langhe
+ Update notes.html with new references
+  Include chapter xx heading
+ Update runbook for new chapter
+ Check changes into git
+  git add <new chapter>
+  git commit -a -m "Add chapter xx"
+ Delete kindle from amazon page
+  e-mail to tjjoyn@kindle.com
+ 
+ 

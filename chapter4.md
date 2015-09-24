@@ -1,7 +1,7 @@
 <!-- Pages 42-44 -->
 They arrived at a small square where there was a carousel with small seats fastened to chains. Amalio slowed down and stopped the car.
 
-"*[Kick-in-the-Ass](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#kickintheass)*,
+"*[Kick-in-the-ass](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#kickintheass)*,
 not elegant but that's what it's called. As a young girl I was crazy about the carousel, it seemed to fly... then of course came the kick..."
 
 Amalia laughed, Daniel looked at her white teeth, sharp, and thought of her character. She was hot-headed, mercurial. A few hours earlier she'd wounded him with a cold, hard stare, had slammed the door in his face, and now she'd taken him in the car and told him about her childish games. 
@@ -72,8 +72,6 @@ Amalia slowed down. She asked "How old is she?"
 
 "Twenty-three..."
 
-LEFT OFF
-
 "[She must act quickly if she wants to come out](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#shemustact)."
 
 "Does she want to? This is the point."
@@ -95,9 +93,7 @@ Amalia came out of the store with a boy, both laden with packages. Daniel went t
 Daniel nodded, he suddenly felt tired.
 <div style="text-align: center">
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129232051344/of-violets-and-licorice-chapter-3">&larr;&nbsp;Chapter 3</a>&nbsp;&nbsp;
-<!--
-<a href="http://ofvioletsandlicorice.tumblr.com/post/xxxx/of-violets-and-licorice-chapter-5">Chapter 5&nbsp;&rarr;</a>
--->
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129778824974/of-violets-and-licorice-chapter-5">Chapter 5&nbsp;&rarr;</a>
 
 </div>
 <script>
