@@ -9,7 +9,9 @@ To do when adding a new chapter:
  Add tumblr page with tags
    #wine #slowfood #piedmont #italy #fiction #langhe
  Update notes.html with new references
+  Search for ??
   Include chapter xx heading
+ Update book.html with new chapter
  Update runbook for new chapter
  Check changes into git
   git add <new chapter>

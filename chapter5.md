@@ -1,4 +1,4 @@
-There were even more people the next night, and many were local, as if the 'designer' wines and those talked about (?? quelli di riporto) from California, Chile, and Uraguay, which had the names of the reds of Piedmont, Veneto, Tuscany, in the first case had aroused curiosity and in the second case some discomfort, some concern. For this reason Daniel had emphasized the essential marriage between the vines and the earth, and of the importance of the crus and of the sor&igrave; (?? Piedmont dialect: south-facing vineyard exposed to the sun). He tried to give reassurance: it was not enough to be a good winemaker to make an exceptional wine; maybe a good wine, yes, but certainly not one of those that went to Sukiyabasshi Jiro in Tokyo, Le Cirque in New York or to Bocca di Bacco in Berlin.
+There were even more people the next night, and many were local, as if the 'designer' wines and [those talked about](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thosetalked) from California, Chile, and Uraguay, which had the names of the reds of Piedmont, Veneto, Tuscany, in the first case had aroused curiosity and in the second case some discomfort, some concern. For this reason Daniel had emphasized the essential marriage between the vines and the earth, and of the importance of the crus and of the [sor&igrave;](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#sori). He tried to give reassurance: it was not enough to be a good winemaker to make an exceptional wine; maybe a good wine, yes, but certainly not one of those that went to Sukiyabasshi Jiro in Tokyo, Le Cirque in New York or to Bocca di Bacco in Berlin.
 
 The next evening was dedicated to French wines, for Daniel a walk in the park, although he expected some disputes, and some local pride also. He would try to smooth that over, as he always did, especially in the case of guests who were distinguished and courteous.
 
@@ -50,11 +50,11 @@ Luciano opened the door for Daniel, outside of the *Savona*.
 
 "To see a little of the Barolo area."
 
-"Monforte d'Alba, Novello, Barolo, La Morra, Roddi, Castiglione Falletto, Serralunga... [the tour isn't complete, but that's the idea](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thetourisnt)... and then let us say, a beautiful view of the vineyard hills and you've seen it all..."
+"Monforte d'Alba, Novello, Barolo, La Morra, Roddi, Castiglione Falletto, Serralunga... [the tour isn't complete, but that's the idea](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thetourisnt)... and then let's say, a beautiful view of the vineyard hills and you've seen it all..."
 
 Daniel laughed "You are best calling card for The Office of Tourism."
 
-"No, it's that I can't take all of this wine rhetoric any more. We have only that and we build castles of lies. And there is no place for anything, for a memory. We all seem born gentlemen since this is no longer a land of ruin."
+"No, it's that I can't take all of this wine rhetoric any more. We have only that and we build castles of lies. And there's no place for anything, for a memory. We all seem born gentlemen since this is no longer a land of ruin."
 
 "This is good thing," said Daniel, who wanted to think about his own issues.
 
@@ -65,17 +65,17 @@ Daniel laughed "You are best calling card for The Office of Tourism."
 
 "It'll happen, but I don't like it."
 
-From the valley floor they rose up towards Barolo, through pastel vineyards, row after row, spacious, straight lines and as even as a musical score, a spatial geometry that was becoming more abstract, as the taxi, skirting the Cannubi, rose toward La Volta, breaking away from the ground in a hypnotic vision.
+From the valley floor they rose up towards Barolo, through pastel vineyards, row after row, spacious, straight lines as even as a musical score, a spatial geometry that was becoming more abstract, as the taxi, skirting the Cannubi, rose toward La Volta, breaking away from the ground in a hypnotic vision.
 
 He looked away from the view and thought of the kiss he'd received, the night before, from Amalia. It had something of violence, of rapacity, that covered tenderness and sweetness. He'd been troubled, almost unable to react, to answer her with equal intensity, even if he would have wanted to. They had remained motionless in the yard, then she said, heading for the front door, "Can I ask you to leave the car in Piazza *Savona* and the keys in the hotel, Daniel?"
 
 Daniel had returned to the hotel dazed, and he continued to be as he thought that after the kiss she hadn't even used the familiar "tu", even if the way in which she'd said his name was gentle.
 
-He asked, "What is the sentimental situation of the Giacosa siblings?"
+He asked, "What's the relationship status of the Giacosa siblings?"
 
 Luciano shrugged his shoulders.
 
-"He's extremely jealous of his sister, morbidly. She isn't going out with anyone here. [She has sent away more than one, and those who have more real estate and vineyards than her](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#shehassent). Travels, sometimes. [But always comes back like she started](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#butalwayscomesback). Giulio is one of the prostitutes, I would say, or some foreigner in transit. There was a time that when there was an understanding with a German, people who had bought in the Langhe believing it was paradise. Two winters of fog and ice where enough to make them disappear. And it all ended there."
+"He's extremely jealous of his sister, morbidly. She isn't going out with anyone here. [She has sent away more than one, and those who have more real estate and vineyards than her](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#shehassent). Travels, sometimes. [But always comes back like she started](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#butalwayscomesback). Giulio is one of the prostitutes, I would say, or some foreigner in transit. There was a time when there was an understanding with a German, people who had bought in the Langhe believing it was paradise. Two winters of fog and ice where enough to make them disappear. And it all ended there."
 
 Daniel didn't comment. He said "Land rich in limestone, sandstone, here the vines reach great depths..." Maybe he wanted to say that feelings and passions had obscure origins. 
 
