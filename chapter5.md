@@ -83,6 +83,7 @@ He'd decided to stay, extending the course wasn't a problem. He could possibly t
 
 <div style="text-align: center">
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129421655504/of-violets-and-licorice-chapter-4">&larr;&nbsp;Chapter 4</a>&nbsp;&nbsp;
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129929958959/of-violets-and-licorice-chapter-6">Chapter 6&nbsp;&rarr;</a>
 
 </div>
 <script>
