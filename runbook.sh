@@ -7,7 +7,7 @@ echo "<div style='page-break-before:always;'></div><h1>Back of Dust Jacket</h1><
 sed -i '/<div style="text-align/,$d' backofdustjacket.md.tmp
 # TODO: update last chapter
 typeset -i i LAST_CHAP
-LAST_CHAP=7
+LAST_CHAP=8
 # TODO: add new chapter's id to this list
 UPDATE_LIST="126996872554 insidedustjacket.md 
              127000556994 backofdustjacket.md 
@@ -19,6 +19,7 @@ UPDATE_LIST="126996872554 insidedustjacket.md
              129778824974 chapter5.md
              129929958959 chapter6.md
              130091632584 chapter7.md
+             130345019824 chapter8.md
              129355307919 book.html
              "
 set -- $UPDATE_LIST 

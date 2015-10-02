@@ -1,5 +1,5 @@
 <!-- Page 55-58 -->
-Daniel looked at the time &ndash; it was five in the afternoon, outside the sun would still be hot and you'd see large patches of light on the front of the buildings and on the cobblestones of the piazza. He'd slept a couple of hours after returning from Bergolo, and had eaten a hearty salad at the hotel. He hadn't gotten any phone calls from the *Tastevin*; he'd hoped that Amalia had been looking for him. He felt confused, after that kiss Amalia had shown indifference, almost coldness, as if their feelings were the same as at the beginning of their professional relationship. He no longer knew what value to give to those lips that had pressed strongly against his. It's true that they hadn't been alone again, but even so he hadn't rediscovered in her eyes the light on the emptiness that had preceded that moment of violent passion, a request for union that is always a true kiss.
+Daniel looked at the time &ndash; it was five in the afternoon, outside the sun would still be hot and you'd see large patches of light on the front of the buildings and on the cobblestones of the piazza. He'd slept a couple of hours after returning from Bergolo, and had eaten a hearty salad at the hotel. He hadn't gotten any phone calls from the *Tastevin*; he'd hoped that Amalia had been looking for him. He felt confused, after that kiss Amalia had shown indifference, almost coldness, as if their feelings were the same as at the beginning of their professional relationship. He no longer knew what value to give to those lips that had pressed strongly against his. It's true that they hadn't been alone again, but even so he hadn't rediscovered in her gaze the light on the emptiness that had preceded that moment of violent passion, a request for union that is always a true kiss.
 
 Daniel got out of the shower and bumped into Flop. The dog yelped. The telephone rang. Leaving large puddles of water on the floor, he grabbed the phone. He heard the voice of Marc, cheerful, almost singing, tell him: "She's coming, Nicole is coming and Laurencine hasn't made too many objections."
 
@@ -64,6 +64,7 @@ Daniel asked, "Where is Giulio now?"
 Amalia cried, silently. Flop came and licked the hand that remained in her lap. Daniel felt her fist pressing into his hand, as if it wanted to disappear.
 <div style="text-align: center">
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129929958959/of-violets-and-licorice-chapter-6">&larr;&nbsp;Chapter 6</a>&nbsp;&nbsp;
+<a href="http://ofvioletsandlicorice.tumblr.com/post/130345019824/of-violets-and-licorice-chapter-8">Chapter 8&nbsp;&rarr;</a>
 
 </div>
 <script>

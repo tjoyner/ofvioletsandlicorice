@@ -6,7 +6,7 @@ There's the strange figure of a writer who calls himself [Eta Beta](http://ofvio
 
 There's a farm, La Ginotta, part of Barbaresco, if anyone cared about it. After being abandoned for years, a challenge from the past will return it to the limelight. 
 
-The busy hills of the Langhe intersect with these and other colorful characters: a taxi driver who drinks beer, wine producers, [*Pallone Elastico*]http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#pallone) players, gamblers, winemaking technicians, and also, inevitably, foreign tourists. 
+The busy hills of the Langhe intersect with these and other colorful characters: a taxi driver who drinks beer, wine producers, [*Pallone Elastico*](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#pallone) players, gamblers, winemaking technicians, and also, inevitably, foreign tourists. 
 
 In a dance of life that blends curiosity and regret, passion and jealousy, Orengo tells us how the world changes inside a changing world.
 
