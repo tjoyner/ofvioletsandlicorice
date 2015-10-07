@@ -269,7 +269,7 @@ He said, "So, here I am. I'm ready for the work that awaits me."
 
 She got up, offering a smile as bright as the July moon, and Daniel held his breath. 
 
-"You set up wine cellars, or so you've written to me...you prepare them for for clients that don't know where to begin, or that don't have the time to follow through..."
+"You set up wine cellars, or so you've written to me...you prepare them for clients that don't know where to begin, or that don't have the time to follow through..."
   
 "Generally for private clients...also a few restaurants. In both cases, I try to select clients that I can work with closely. It's a task that requires trust on both sides."
 

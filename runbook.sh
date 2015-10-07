@@ -8,6 +8,11 @@ sed -i '/<div style="text-align/,$d' backofdustjacket.md.tmp
 # TODO: update last chapter
 typeset -i i LAST_CHAP
 LAST_CHAP=8
+
+FNAME="ofvioletsandlicorice_ch1_${LAST_CHAP}_`date +%m%d%Y`"
+sed -i "s/779\/ofviolets.*\.mobi/779\/$FNAME.mobi/" book.html
+sed -i "s/779\/ofviolets.*\.epub/779\/$FNAME.epub/" book.html
+
 # TODO: add new chapter's id to this list
 UPDATE_LIST="126996872554 insidedustjacket.md 
              127000556994 backofdustjacket.md 
@@ -46,7 +51,6 @@ done
 echo "<div style='page-break-before:always;'><h1>Notes, Questions, Uncertainties</h1><br/><br/>" | cat - notes.html > notes.html.tmp
 CHAPLIST="$CHAPLIST notes.html.tmp"
 
-FNAME="ofvioletsandlicorice_ch1_${LAST_CHAP}_`date +%m%d%Y`"
 
 $PAN -t epub --epub-cover-image=cover.jpg $CHAPLIST -o $FNAME.epub -V title:""
 #$PAN $CHAPLIST -o $FNAME.pdf -V title:""
@@ -58,7 +62,5 @@ $PAN -t epub --epub-cover-image=cover.jpg $CHAPLIST -o $FNAME.epub -V title:""
 rm "$DROPBOX"/*.mobi
 rm "$DROPBOX"/*.epub
 cp $FNAME.* "$DROPBOX"/.
-sed -i "s/779\/ofviolets.*\.mobi/779\/$FNAME.mobi/" book.html
-sed -i "s/779\/ofviolets.*\.epub/779\/$FNAME.epub/" book.html
 
 rm *.tmp
