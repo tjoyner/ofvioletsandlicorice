@@ -185,6 +185,7 @@ Silvio shrugged his shoulders again.
 
 <div style="text-align: center">
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130091632584/of-violets-and-licorice-chapter-7">&larr;&nbsp;Chapter 7</a>&nbsp;&nbsp;
+<a href="http://ofvioletsandlicorice.tumblr.com/post/130757370364/of-violets-and-licorice-chapter-9">Chapter 9&nbsp;&rarr;</a>
 
 </div>
 <script>
