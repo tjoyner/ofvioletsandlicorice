@@ -28,6 +28,20 @@ UPDATE_LIST="126996872554 insidedustjacket.md
              130757370364 chapter9.md
              129355307919 book.html
              "
+#             130908013549 chapter10.md
+#             130908034409 chapter11.md
+#             130908092409 chapter12.md
+#             130908111454 chapter13.md
+#             130908130064 chapter14.md
+#             130908149194 chapter15.md
+#             130908177659 chapter16.md
+#             130908197564 chapter17.md
+#             130908218404 chapter18.md
+#             130908239619 chapter19.md
+#             130908262644 chapter20.md
+#             130908282434 chapter21.md
+#             130908308029 chapter22.md
+#             130908326604 chapter23.md
 set -- $UPDATE_LIST 
 while [ ! -z "$1" ]  # while $1 is not empty
 do

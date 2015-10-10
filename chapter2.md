@@ -204,7 +204,7 @@ Daniel shook his head and stroked the beast, who had rested his muzzle on his sh
 "[If there's one to be found, I guess](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#iftheresone)."
 <br/><br/><br/>
 
-"[One assesses a wine with chemistry that records its constituents](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#oneassesses), while tasting records our reactions to and the interactions between those components."
+"[One assesses a wine using chemistry to identify its constituents](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#oneassesses), while tasting records our reactions to and the interactions between those components."
 
 This was the lesson Daniel liked least, all theoretical, abstract, but he inevitably moved on to practical examples.
 
