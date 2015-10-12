@@ -370,7 +370,7 @@ While going down Via Maestra, past the lighted shop Donne Vincenti, containing d
 
 The bar was open, he sat under the arcade, there was bustle and merriment, music of an Italian summer translated, like almost everywhere, into American tones.
 
-He asked the waiter for a gin and tonic, light. He'd only drank a sip of Burgundy, but he wanted to be alert because he missed a phone call at the close of his second night away from Paris.
+He asked the waiter for a gin and tonic, light. He'd only had a sip of Burgundy, but he wanted to be alert because he missed a phone call at the close of his second night away from Paris.
 
 He saw the Japanese girl pass by. He waved to her, half-rising from his chair. She saw him, slowed down, smiled at him. Daniel felt obliged to invite her to the table. With some surprise, Daniel saw that she accepted the invitation, coming over and sitting opposite him.
 

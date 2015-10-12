@@ -32,7 +32,7 @@ Giulio was sitting on a wooden bench, Flop, sniffing the ground, ran back and fo
 
 "Do you think I haven't tried? My sister's head is harder than a rock. We fought for years, until I decided to let it go. She's my sister, she raised me, she's my family."
 
-Daniel didn't know what to add. He remained silent in the fresh Alpine air that knew the snow of Bisalta and Monviso. A shutter suddently slammed and Daniel stood to look at it: framed in the first floor window, facing him, was Amalia, with tousled hair, in a blue robe with small white flowers.
+Daniel didn't know what to add. He remained silent in the fresh Alpine air that knew the snow of Bisalta and Monviso. A shutter suddenly slammed and Daniel stood to look at it: framed in the first floor window, facing him, was Amalia, with tousled hair, in a blue robe with small white flowers.
 
 "I have visitors?"
 
@@ -100,7 +100,7 @@ At the *Savona*, Daniel had a phone call from Marc. He called him back. Marc tol
 
 "And when would she come?" asked Daniel apprehensively. 
 
-"Give me a couple of days," said Marc, "I could put her on a plane here and you can get pick her up in Genoa or Nice, whichever is most convenient."
+"Give me a couple of days," said Marc, "I could put her on a plane here and you could pick her up in Genoa or Nice, whichever is most convenient."
 
 "I'll ask," Daniel said. "Let me know, I'll have to get things organized."
 
