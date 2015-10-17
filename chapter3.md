@@ -90,7 +90,7 @@ Daniel continued, followed by Flop, towards the hazelnuts. When he reached the c
 Daniel shrugged. Then, hitting Flop with the back of his hand, he said, "Tonight we're sleeping in the hotel again..."
 <br/><br/><br/>
 
-At the *Savona*, Daniel had a phone call from Marc. He called him back. Marc told hime that Nicole was better, and that perhaps he'd managed to convince her to join him in Piedmont.
+At the *Savona*, Daniel had gotten a phone call from Marc. He called him back. Marc told him that Nicole was better, and that perhaps he'd managed to convince her to join him in Piedmont.
 
 "When?" asked Daniel. "I'm booked until Sunday. Today is Wednesday."
 
@@ -106,20 +106,20 @@ At the *Savona*, Daniel had a phone call from Marc. He called him back. Marc tol
 
 The thought of Nicole coming to Alba troubled him. Nicole demanded constant and discreet attention. Daniel feared her sudden rages, the possibility of her escape. Could he possibly keep her with him for several days? 
 
-It would be nice to have a short vacation with his daughter, it had not happened for years, since he and Laurencine were still a family. If Amalia had a different character, perhaps he could talk to her about his problem. Or maybe he could talk to her just because she had that character. She had talked to him about certain delicate things because it was easier to tell them to a stranger.
+It would be nice to have a short vacation with his daughter, it hadn't happened for years, since he and Laurencine were still a family. If Amalia had a different character, perhaps he could talk to her about his problem. Or maybe he could talk to her just because she had that character. She had talked to him about certain delicate things because it was easier to tell them to a stranger.
 
 He looked at Flop, who was crouched near the door. He wondered what he would do with Flop if Nicole came. There were too many uncertainties in his thoughts. He lay down on the bed, he needed to rest before going to breakfast.
 
-When he came out on Via Roma he smelled an intense aroma of cocoa and vanilla that seemed to scrape his throat, so he turned towards Via Toti, as always followed by Flop. He was looking for a restaurant and was lost among the narrow streets, the low houses with balconies covered with geraniums, antique shops and hardware stores, crowded wine shops and bakeries displaying special breads of all shapes baked in wood-burning ovens. He thought he saw Amalia coming out of a shop. She wore a white dress tied at the waist by a wide blue belt. He stopped in front of the entrance, it was a hairdresser, read the name, Egoist, smiled and ducked towards a piazza with medieval towers and tall bell towers. He saw a sign *Tavern of the Poets*: With that title, Daniel thought, they wouldn't stop dogs from entering.  He went in. The atmosphere was pleasant, with its small tables and and shelves of wine on the walls, it had the appearance of a bistro. He sat and looked at the short list of daily specials. He asked for [bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), and a plate of [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of bread stick, coarse and uneven.
+When he came out on Via Roma he smelled an intense aroma of cocoa and vanilla that seemed to scrape his throat, so he turned towards Via Toti, as always followed by Flop. He was looking for a restaurant and was lost among the narrow streets, the low houses with balconies covered with geraniums, antique shops and hardware stores, crowded wine shops and bakeries displaying special breads of all shapes baked in wood-burning ovens. He thought he saw Amalia coming out of a shop. She wore a white dress tied at the waist by a wide blue belt. He stopped in front of the entrance, it was a hairdresser. He read the name, Egoist, smiled and ducked towards a piazza with medieval towers and tall bell towers. He saw a sign *Tavern of the Poets*: with that title, Daniel thought, they wouldn't stop dogs from entering.  He went in. The atmosphere was pleasant, with its small tables and and shelves of wine on the walls, it had the appearance of a bistro. He sat and looked at the short list of daily specials. He asked for [bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), and a plate of [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of breadstick, coarse and uneven.
 
 <!-- Page 41 -->
-He ate with pleasure: the bread was good,  the olive oil was good, and the wine, a light Dolcetto, seemed respectable. He ended with a cup of cooked fruit and a large coffee. He gave two more pieces of breadsticks to Flop, then asked for a bowl of water. When Flop was finished drinking, he paid and they left.
+He ate with pleasure: the bread was good,  the olive oil was good, and the wine, a light Dolcetto, seemed respectable. He ended with a cup of cooked fruit and a large coffee. He gave a few more pieces of breadstick to Flop, then asked for a bowl of water. When Flop was finished drinking, he paid and they left.
 
 They turned a little aimlessly, towards the cathedral and town hall. Daniel bought a few postcards, then went down along Via Maestra, through tourists and school groups.
 
 He saw a car stop on Via Maestra and heard a horn beep. It was a silver Toyota SUV, from its window a hand made a sign to hurry.  It reached Via Mandelli and the door opened. It was Amalia. "Flop can get in the back," she said, accelerating towards Via Paruzza. They left Alba and took the freeway to Turin.
 
-"I have to get some salumi and agnolotti pasta. Want to come with me?"
+"I have to get some salami and agnolotti pasta. Want to come with me?"
 
 "You've kidnapped me," he said.
 

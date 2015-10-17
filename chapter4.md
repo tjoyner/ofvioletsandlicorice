@@ -50,7 +50,7 @@ Lights, yellow, blue, and red, were flickering to the music, until the large dom
 
 "Again?" the red-head asked Daniel, but Amalia had already gotten out and tried to regain her balance, leaning on the caravan. 
 
-"Thanks, we're good," replied Daniel approaching the cashier, followed by Flop, who hadn't stopped barking and chasing them, turning around toward the ride.
+"Thanks, we're all right," replied Daniel, approaching the cashier, followed by Flop, who hadn't stopped barking and chasing them around the ride.
 
 When they returned to the car, Daniel saw in Amalia's eyes a quick flash of melancholy. He'd hoped for comments on her ride on the *kick-in-the-ass*, but for a few kilometers she said nothing.
 

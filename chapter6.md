@@ -73,7 +73,7 @@ Daniel finished his glass, took an olive and got up. He said, "Luciano, I have t
 
 <!-- Page 54 -->
 <br/><br/><br/>
-The room was in the shade. Flop slept in the bathroom, crouched under the sink. Silvio had assented as he went up to the room, and had just said to keep him in the bathroom so he wouldn't leave an odor in the room. Daniel has asked for a bowl of water and assured him that he'd soon find accommodations, maybe he could leave him at Ginotta, where he was going to speak with the Giacosas.
+The room was in the shade. Flop slept in the bathroom, crouched under the sink. Silvio had assented as he went up to the room, and had just said to keep him in the bathroom so he wouldn't leave an odor in the room. Daniel had asked for a bowl of water and assured him that he'd soon find accommodations, maybe he could leave him at Ginotta, where he was going to speak with the Giacosas.
 
 "They wouldn't know where to begin with a dog..."
 

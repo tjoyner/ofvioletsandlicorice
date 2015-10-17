@@ -235,7 +235,7 @@ Amalia recognized him as soon as he entered the *Tastevin*. He was the clumsy ma
 
 The wine bar was empty, it was a couple of hours before the opening; in the shadows of mid-afternoon the slightly ajar window shutters let in blades of light and warmth, combined with the smell of dry straw, linden trees, and smoke from the railroad embankment.
 
-Daniel had crossed the middle of Via Maestra, as Silvio had told him, looking at the men's and women's fashion stores, the jewelers, the delicatessens, and the many windows exhibiting magnum bottle trophies of Barolo and Nebbiolo, of Moscato and chinato wines lying between nougat bars, bags of cornmeal biscuits and jars of floating dried mushrooms with silhouetted cartoons of black and white truffles. Then he found the sign of the enoteca *Tastevin*, knocked, and went in. 
+Daniel had crossed the middle of Via Maestra, as Silvio had told him, looking at the men's and women's fashion stores, the jewelers, the delicatessens, and the many windows exhibiting magnum bottle trophies of Barolo and Nebbiolo, of Moscato and Chinato wines lying between nougat bars, bags of cornmeal biscuits and jars of floating dried mushrooms with silhouetted cartoons of black and white truffles. Then he found the sign of the enoteca *Tastevin*, knocked, and went in. 
 <br/><br/><br/>
 
 "Monsieur Daniel Lorenzi. From Paris. I'd bet..." Giulio left the question open, because the man could only be him, there were letters and phone calls to confirm the date and time of his arrival.
@@ -327,7 +327,7 @@ Silvio shrugged, continuing to clean the glasses. "Globalization, Luciano. The F
 
 "Maybe not God, but the prices, yes."
 
-"Yes, and really Giulio is the first. He reveres designer wine... you know he doesn't give a damn about a good Barbareso, Nebbiolo or Dolcetto. He likes to call the wine 'Cappuccino,' 'Crest Beak,' '[Point of Light](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#pointoflight),' 'Harlequin,' order grapes, mix, blend: Wine without vines..."
+"Yes, and really Giulio is the first. He reveres designer wine... you know he doesn't give a damn about a good Barbaresco, Nebbiolo or Dolcetto. He likes to call the wine 'Cappuccino,' 'Crest Beak,' '[Point of Light](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#pointoflight),' 'Harlequin,' order grapes, mix, blend: Wine without vines..."
 
 "[You know how it is, with Amalia](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#youknowhow)..."
 

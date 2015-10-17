@@ -1,8 +1,8 @@
-There were even more people the next night, and many were local, as if the 'designer' wines and [those talked about](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thosetalked) from California, Chile, and Uraguay, which had the names of the reds of Piedmont, Veneto, and Tuscany, in the first case had aroused curiosity and in the second case some discomfort, some concern. For this reason Daniel had emphasized the essential marriage between the vines and the earth, and of the importance of the crus and of the [sor&igrave;](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#sori). He tried to give reassurance: it was not enough to be a good winemaker to make an exceptional wine; maybe a good wine, yes, but certainly not one of those that went to Sukiyabasshi Jiro in Tokyo, Le Cirque in New York or to Bocca di Bacco in Berlin.
+There were even more people the next night, and many were locals, as if the 'designer' wines and [those talked about](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thosetalked) from California, Chile, and Uraguay, which had the names of the reds of Piedmont, Veneto, and Tuscany, in the first case had aroused curiosity and in the second case some discomfort, some concern. For this reason Daniel had emphasized the essential marriage between the vines and the earth, and of the importance of the crus and of the [sor&igrave;](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#sori). He tried to give reassurance: it was not enough to be a good winemaker to make an exceptional wine; maybe a good wine, yes, but certainly not one of those that went to Sukiyabasshi Jiro in Tokyo, Le Cirque in New York or to Bocca di Bacco in Berlin.
 
 The next evening was dedicated to French wines, for Daniel a walk in the park, although he expected some disputes, and some local pride also. He would try to smooth that over, as he always did, especially in the case of guests who were distinguished and courteous.
 
-"Why not stay for another week?" Amalia has asked, just as he finished his tasting.
+"Why not stay for another week?" Amalia had asked, just as he finished his tasting.
 
 They were sitting near the entrance. Daniel had asked for a salad and some cheese. He looked at Amalia who was playing with a breadstick, and who was slightly flushed after asking him to stay.
 
@@ -31,7 +31,7 @@ They reached the car and took the ring road to Altavilla. They reached Ginotta, 
 
 "It's so sad," said Amalia, getting out of the car.
 
-"I saw the vines clinging to the Elm, which is recovering, there's a lot to replant...but the job is possible," Daniel said, "as long as we want to do it."
+"I saw vines clinging to the Elm, which is recovering, there's a lot to replant... but the job is possible," Daniel said, "as long as we want to do it."
 
 This time Amalia had not turned away. She looked down, and whispered "Perhaps it is doable." Daniel reached out, opened his hand, then he realized that he was about to caress her face and felt a shyness. He closed his hand into a fist and dropped his arm to his side. Amalia smiled at him, and said, with a shine in her eyes: "I don't need paternal caresses." He was dumbfounded, unable to answer. Then she came up boldly and putting her hands on his hips, pulled him against her, looking into his eyes, then kissed him on the mouth: a long, warm kiss.
 <br/><br/><br/>
@@ -52,7 +52,7 @@ Luciano opened the door for Daniel, outside of the *Savona*.
 
 "Monforte d'Alba, Novello, Barolo, La Morra, Roddi, Castiglione Falletto, Serralunga... [the tour isn't complete, but that's the idea](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thetourisnt)... and then let's say, a beautiful view of the vineyard hills and you've seen it all..."
 
-Daniel laughed "You are best calling card for The Office of Tourism."
+Daniel laughed "You're best calling card for The Office of Tourism."
 
 "No, it's that I can't take all of this wine rhetoric any more. We have only that and we build castles of lies. And there's no place for anything, for a memory. We all seem born gentlemen since this is no longer a land of ruin."
 
@@ -61,7 +61,7 @@ Daniel laughed "You are best calling card for The Office of Tourism."
 "I don't deny it, but to forget it is to forget the pain of so much blood shed. These were hills of blood, before wine. And instead of keeping silent, who wants to remember it? Here on April 25 we celebrate with <em>Go Wine</em>, and the Cervere Leeks in the church square more than the fall of the resistance. Since there's no more struggle, there's no more memory."
 
 <!-- Page 48 -->
-"Forgetfulness serves to move forward, [to put things right](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#toputthings)."
+"Forgetfulness helps to move forward, [to put things right](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#toputthings)."
 
 "It'll happen, but I don't like it."
 
