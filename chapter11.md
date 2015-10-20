@@ -8,7 +8,7 @@ Then he resumed the story, with the same tone, gentle and monotonous, of a few m
 
 "In the days ahead, after that request which Giacomo had misjudged, taking it for a game, a skirmish, he continued to receive e-mails where Francesca told him about a client who wanted a dining room with shades of blue, from curtains to towels, and she wrote that she went to buy some colorful shoes at Pulcinella, with high heels, and a low-cut blouse, violet, that her sons had judged 'slutty.' 
 
-"The e-mails were very cheerful, excited, but what they were 'excited' about Giacomo saw only on Saturday afternoon, when, driven by a vague sense of uncertainty, he phoned her, and she asked him 'Where are you? Not here?' Then he realized that the request, the appointment, was real. Francesca had really wanted him to take her for lunch at Villatella. Their time, their desires, had not coincided.
+"The e-mails were very cheerful, excited, but what they were 'excited' about Giacomo saw only on Saturday afternoon, when, driven by a vague sense of uncertainty, he phoned her, and she asked him *Where are you? Not here?*. Then he realized that the request, the appointment, was real. Francesca had really wanted him to take her for lunch at Villatella. Their time, their desires, had not coincided.
 <!-- Page 95 -->
 
 "He should have thought more about women who were separated, especially those just recently separated, especially based on his personal experiences. He should have known about those taken by the whirlwind of freedom, the desire to marry again, the frustrations of the need for revenge. Everything is encapsulated in a sheath of feminine pride. Narcissism.

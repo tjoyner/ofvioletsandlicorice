@@ -117,7 +117,7 @@ When he returns the phone to the stranger, he smiles. He says "She was very will
 
 "But aren't you warm, dressed like that?"
 
-"The story, Daniel, that of Amalia and Giulio, of Nicole and of Ginotta, belongs to the late Spring. I live, actually, in the winter and the long-tailed tits who arrive each year from Alaska to seek out the Langhe hills here between Barbaresco and Neive. And inside my heart, like crystals of snow." 
+"The story, Daniel, that of Amalia and Giulio, of Nicole and of Ginotta, belongs to the late Spring. I live, actually, in the winter and the long-tailed tits who arrive each year from Alaska to seek out the Langhe hills here between Barbaresco and Neive. And also inside my heart, like crystals of snow." 
 
 Daniel was becoming too impatient to comment on the words of the unknown writer. He had already gotten up and advised Silvio to prepare the most comfortable room in the hotel, and not far from his. Then he headed toward the exit. 
 <!-- Page 82 -->
@@ -172,11 +172,11 @@ Floriana started the CD and let him listen in silence. Then, while the player mo
 
 Daniel defended himself weakly, saying: "It wasn't up to me..."
 
-"We always bear the guilt when falling in love," said Eta Beta, in a tone that didn't allow a reply. "Reread Stendhal, or Barthes, if you prefer. In this case, Barthes, if you haven't read him, if you'll permit me to advise our kind female driver, Floriana."
+"We always bear the guilt when falling in love," said Eta Beta, in a tone that didn't allow a reply. "Reread Stendhal, or Barthes, if you prefer. In this case, Barthes, if you haven't read him, if you would permit me to advise our kind driver, Floriana."
 
 Daniel caught a tone of ambiguity Eta Beta's voice, but couldn't decipher it. He hadn't read Barthes, and of Stendhal he had distant memories from school.
 
-"[They will lower your immunity system](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#theywilllower). Maybe because you are less vigilant. Maybe it's the last thing you'd expect while already searing on the grill of love. The fact is that we foolishly think we're in paradise. But we must still ask ourselves how this could happen. And for answers, there are a thousand, and none."
+"[They will lower your immune system](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#theywilllower). Maybe because you are less vigilant. Maybe it's the last thing you'd expect while already searing on the grill of love. The fact is that we foolishly think we're in paradise. But we must still ask ourselves how this could happen. And for answers, there are a thousand, and none."
 <!-- Page 85 -->
 
 Eta Beta looked out of the comfortable car: he saw a light frost covering the countryside, the last persimmon fruit saved from the birds, shining with its already meager pulp. There was abundant snow in the mountains. 
@@ -230,7 +230,7 @@ Floriana agreed with that. She asked "A great love?"
 
 Eta Beta nodded and asked in return: "And yours?"
 
-Floriana nodded with a proud look that especially affected Daniel, who suppressed the question on his lips.
+Floriana nodded with a proud look that especially affected Daniel, [who suppressed a question forming on his lips](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#fiordilabbra).
 
 "Yes, she was very beautiful," continued Eta Beta. "Or perhaps more interesting than beautiful. Her profile was very beautiful, seen from the right, and interesting from the front, overall. I looked at it a lot, her profile. When she went driving, I often tried to go in the car with her. So I could look at her for a long time. She told me that I didn't say much. But I couldn't do both things, and for me it was essential that I look at her."
 
@@ -311,6 +311,7 @@ Eta Beta snorted in annoyance, glanced at the narrow road between the reddish wa
 "Giacomo didn't ask, she told him that she was separated, she had settled a relationship that had dragged on for too long at the beginning of that September, and now found herself with two children to share with her ex-husband.
 
 "One morning, they had now spent a couple of weeks on their daily correspondence, Giacomo wrote 'It's raining, can I use the familiar *tu*?' She replied that she failed to understand the connection, but that it was fine. And Giacomo began to use the familiar with her, and she did with him. Moreover, the tone of their more or less short letters had become more than friendly, I would say affectionate, almost flirtatious. Francesca told him that she had a nickname, Cisca, and often she signed her letters with many small *k*s that stood for *kisses*, [of course there were many and a few possibly had the taste of her lips on them](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#piuerano), [but whenever there was one, and just one *k*](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#malevolte), Giacomo would stop and and stare at the letter as if it were an island of attainable happiness. It was enough to take the plunge and swim.
+<!-- Page 93 -->
 
 "And it was she who invited him to plunge [one afternoon, at the end of the evening](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#unpomeriggio), by writing 'Where will you take me Saturday night?' and with the answer 'Wherever you would like,' Giocomo committed the first, irreparable, [or as he had long continued to judge it, mistake](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ocosilungamente). She suggested a remote town, right on the border between Italy and France, a place that Giocomo knew well, a place for gourmets that he had visited as a boy, with friends. It was a restaurant enclosed in the valley, beyond Carletti, there for more than fifty years, with the same menu: rabbit, goat and beans, [belurini flowers](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#belurini) and stuffed onion, in the winter, artichoke torte, at Easter, vegetable torte. How could Francesca have known that place?"
 
