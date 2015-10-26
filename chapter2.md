@@ -171,7 +171,7 @@ Daniel smiled, and said "Why don't the Giacosa siblings take care of Ginotta? Is
 
 "A farm above Elvio, below Madonna di Como, there are hectares of vines [along the river](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alongtheriver). There, lightning took their father during a summer storm. Since then Amalia no longer wants to touch the land, and she's also stopped her brother, who instead wanted to restore the vineyard and the farm... women, when they get an idea in their heads, it sets like cement..."
 
-Daniel slowly drank his glass of Barbaresco, picking at pieces of seasoned Murrazzano toma.
+Daniel slowly drank his glass of Barbaresco, picking at pieces of seasoned Murrazzano [toma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus).
 
 "When a place is home to bad memories, it takes time..."
 
@@ -288,7 +288,7 @@ Daniel shrugged, and thought of Laurencine, Nicole.
 
 "They've filled their heads with the first growths. If the Barolo doesn't come from Cannubi they'll turn up their noses. That sucks. They're excited about new wines, inventive, like Gaja makes in Tuscany. And Gaja is the ultimate..."
 
-"I prefer your Barbaresco," answered Daniel, taking a slice of Toma cheese.
+"I prefer your Barbaresco," answered Daniel, taking a slice of toma cheese.
 
 Amalia was absent from their discussion. Daniel saw her wandering gaze, and supposed that her thoughts were elsewhere. She expressed annoyance at their words, nervously taking slices of salami and chunks of cheese from the platter.
 

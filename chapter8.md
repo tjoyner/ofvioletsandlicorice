@@ -89,7 +89,7 @@ Her heard Maria's voice asking him "Are you married?" Daniel nodded.
 
 Daniel thought about whether to change the subject or to let it go on. At times he wanted to drink wine without tasting it, without feeling anything but its liquidity, its flow down the throat, as naturally as looking out to the sea.
 
-A cheese course arrived, small slivers of goat cheese, triangles of fresh *toma*.
+A cheese course arrived, small slivers of goat cheese, triangles of fresh toma.
 
 "She doesn't do anything. She argues with me and with her mother. Runs away, disappears."
 
