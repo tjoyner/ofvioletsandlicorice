@@ -5,7 +5,7 @@ Eta Beta not only peed but wanted to have a coffee, and then, praising the Briga
 
 "One can tell where these come from: by their odors, by their shape, their recognizable flavors, they have a name. On the other hand, Giacomo didn't know where Francesca came from: she was a girl, a woman, who knew all the places on the Riviera coast, she could belong to Laugueglia as well as to Riva, to Diano as well as to Bordighera."
 
-"She didn't speak about the town with the port?" Floriana asked.
+"Didn't she speak about the town with the port?" Floriana asked.
 
 "Yes, this was the impression that came out of the rare speeches that Francesca made about her residence," answered Eta Beta, stretching out in the seat and wrapping himself more and more in his blue coat. "A small city with a port, yes. She told Giacomo that during her lunch break she was going to do her last sunbathing on the beach or walking on the pier. In my imagination I always pictured a place like Camogli, a fishing village, perched above the sea, leaning over its small port, with its narrow alleys that intertwine like veins in a body, its sunny bends and shaded paths. Or more cheerfully, perhaps Riviera di Ponente. And then she spoke of a train station, which Camogli doesn't have. Once she wrote to him: 'The almond tree by the station already has leaves' and he thought that perhaps he could arrive by train, step onto the platform, and kiss Francesca, who would be waiting for him under the flowering almond tree. Here, he imagined her in a rocky village, a rose of stone, as Roth would have said &ndash; Joseph, not Philip. Two roses, actually, because she had her thorns, a strong character, stubborn, defensive, ready to attack if it seemed she had received a snub."
 <!-- Page 97 -->
@@ -182,11 +182,11 @@ Floriana looked at him, looked at Nicole near Giulio, then turned back toward Et
 
 Floriana fell silent, waited for Giulio to get back in the car, and then the two cars left again to resume looking at the hills which grew into mountains with ever higher villages glued to their steep walls.
 
-They had passed Libre, Trucco, Saorge, and the bridge of Briga, and climbed into the shade of linden trees that perfumed the road and whose shadows passed diagonally through the car. Giulio led the way, driving carefully, and Floriana seemed drawn into the landscape, more and more intense in the gray-colored rocks, the red maples, and old abandoned houses.
+They had passed Libre, Trucco, Saorge, and the bridge of Briga, and climbed into the shade of linden trees that perfumed the road and threw shadows across the car. Giulio led the way, driving carefully, and Floriana seemed drawn into the landscape, more and more intense in the gray-colored rocks, the red maples, and old abandoned houses.
 
 "Nicole has asked Daniel something, look..." said Giulio, attracting the attention of Floriana and Eta Beta, "he's touched her arm... the calm after the storm. Right?"
 
-"Sometimes," said Eta Beta, getting up and leaning towards the front seat, "you feel at home, and there things are forgiven, or else are buried under embers that never go out, as long as the fire isn't quenched or there's a split between the litigants. In the first case it's possible for the relationships to return oto normal, in the second it depends on the private lives of the individual combatants and on their vanity, on the narcissistic time that they've devoted to themselves.
+"Sometimes," said Eta Beta, getting up and leaning towards the front seat, "you feel at home, and there things are forgiven, or else are buried under embers that never go out, as long as the fire isn't quenched or there's a split between the litigants. In the first case it's possible for the relationships to return to normal, in the second it depends on the private lives of the individual combatants and on their vanity, on the narcissistic time that they've devoted to themselves."
 
 "Now it's he who's again putting a hand on the back of her neck," said Giulio, who didn't seem to have heard the words of Eta Beta. 
 
