@@ -82,7 +82,7 @@ As they were leaving the airport, Daniel and Nicole were interrupted by Floriana
 
 "I have a car," said Giulio.
 
-Daniel looked at him, not if it would let him escape. He said, "You're coming with us."
+Daniel looked at him, not if it would let him escape: he said, "You're coming with us."
 
 Giulio shrugged his shoulders: "I can't leave the car here. I rented it in Bra, and have to return it."
 
@@ -109,7 +109,7 @@ Nicole and Daniel set out slowly, Floriana missed the exit from the airport a fe
 
 "What relationship isn't?" Floriana answered.
 
-Eta Beta ignored the question, and leaned between the two passengers: "Look, Daniel's asking if she can drive a manual transmission, see, he's showing here the stick shift. [From this distance](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dalontano), he'd like to tell her that he's glad she came, [that he had lost hope](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chenoncisperava). He'd like to ask her how she is, but he's afraid asking such a direct question would irritate her. He points to the landscape, tells her about it, so she's not distracted."
+Eta Beta ignored the question, and leaned between the two passengers: "Look, Daniel's asking if she can drive a manual transmission, see, he's showing here the stick shift. [From this distance](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dalontano), he'd like to tell her that he's glad she came, [that he had lost hope](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chenoncisperava). He'd like to ask her how she is, but he's afraid asking such a direct question would irritate her. He points to the landscape, tells her about it so she's not distracted."
 
 They entered the tunnel, and when they emerged they were above Monte Carlo. Floriana slowed down, moving the car towards the guardrail, while Daniel was pointing towards the high-rises of the Principality. 
 
@@ -167,7 +167,7 @@ They had left Ventimiglia and had taken the road to Roja. They stopped under a c
 
 "Too easy," continued Floriana, "you have to feel for yourself what is right. [If you make mistakes it's because you want to, but then you must justify it, and not with bullshit](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#sesgarri)." Even Floriana was resolved, almost harsh, and Giulio remained silent, without replying. 
 
-"They're stopping to get gas," advised Eta Beta, who seemed to have fallen asleep. 
+"They're stopping to get gas," advised Eta Beta, who had seemed to have fallen asleep. 
 
 The two cars stopped in the self-service area of Q8 gas, and Giulio got out to tell Nicole that it was a diesel, and offered to get the diesel fuel. Daniel let him do it while continuing to look at him with severity and detachment, so much so that Floriana made a sign to Eta Beta:
 

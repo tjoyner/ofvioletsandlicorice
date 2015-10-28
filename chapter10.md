@@ -117,7 +117,7 @@ When he returns the phone to the stranger, he smiles. He says "She was very will
 
 "But aren't you warm, dressed like that?"
 
-"The story, Daniel, that of Amalia and Giulio, of Nicole and of Ginotta, belongs to the late Spring. I live, actually, in the winter and the long-tailed tits who arrive each year from Alaska to seek out the Langhe hills here between Barbaresco and Neive. And also inside my heart, like crystals of snow." 
+"The story, Daniel, that of Amalia and Giulio, of Nicole and of Ginotta, belongs to the late spring. I live, actually, in the winter and the long-tailed tits who arrive each year from Alaska to seek out the Langhe hills here between Barbaresco and Neive. And also inside my heart, like crystals of snow." 
 
 Daniel was becoming too impatient to comment on the words of the unknown writer. He had already gotten up and advised Silvio to prepare the most comfortable room in the hotel, and not far from his. Then he headed toward the exit. 
 <!-- Page 82 -->

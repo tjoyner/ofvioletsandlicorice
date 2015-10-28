@@ -28,7 +28,7 @@ Luciano took a swig, then took the small bottle and started towards the hotel ex
 
 "If he doesn't make it, come back and get the suitcase," Silvio shouted, shaking his head.
 
-"Warm Spring," answered Luciano, getting in the car.
+"Warm spring," answered Luciano, getting in the car.
 <br/><br/><br/>
 
 She was at the kitchen window, drying an espresso cup, when she saw a man emerge from the colors of the hazelnut trees. He came walking on all fours looking at the ground, like he'd lost something. Amalia was curious: the man had strong shoulders, a large, golden-brown head, wide hands and a prominent nose. 
