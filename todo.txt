@@ -3,20 +3,22 @@
 
 To do when adding a new chapter:
  *Double check spacing (<br/>s) and links
- utf-8 chars
+ Search for ??/LEFT OFF
+ *utf-8 chars
  Point new chapter to previous chapter
  Update end of previous chapter to link to it
  Add tumblr page with tags
    #wine #slowfood #piedmont #italy #fiction #langhe
  *Update notes.html with new references
-  Search for ??
-  Include chapter xx heading
+    Search for ??
+    Include chapter xx heading
  *Update book.html with new chapter (remove "Coming soon")
  *Update runbook for new chapter (update LAST_CHAP)
- Check changes into git
+ *Check changes into git
   git add <new chapter>
   git commit -a -m "Add chapter xx"
  Delete kindle from amazon page
   e-mail to tjjoyn@kindle.com
+ Open with firefox, check links
  
  
