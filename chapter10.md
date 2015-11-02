@@ -205,7 +205,7 @@ They had come to the fatal bridge of suicides in Cuneo, and the rocky embrace of
 
 They came out onto Piazza Galimberti, and Eta Beta told her to pull over and stop. 
 
-The first stop was a half disappointment. On the threshold of summer, Arione no longer made marron glac&eacute;, and the Droneresi had run out of it because of the plentiful supply of tourists in transit to Tenda in the Alps. It went better at Sillano, where the small sandwiches of butter and anchovies, peppers and artichokes, salami and butter, and potato salad, had just been made and placed, fresh and fragrant, on the shelves of the counter.
+The first stop was a half disappointment. On the threshold of summer, Arione no longer made marron glac&eacute;, and the Droneresi had run out of it because of the plentiful supply of tourists in transit to Tenda in the Alps. It went better at Sillano, where the small sandwiches of butter and anchovies, peppers and artichokes, salami and butter, and [insalata russa](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#insalatarussa), had just been made and placed, fresh and fragrant, on the shelves of the counter.
 
 Eta Beta invited them to take a table, but not to carry a [fixed assortment](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#cabaret) of sandwiches to it: it was better to get up and serve yourself, because the mouthwatering goodness of the morsels increased when choosing it from among its neighbors.
 

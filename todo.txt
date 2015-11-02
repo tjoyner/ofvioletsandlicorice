@@ -9,6 +9,7 @@ To do when adding a new chapter:
  Update end of previous chapter to link to it
  Add tumblr page with tags
    #wine #slowfood #piedmont #italy #fiction #langhe
+ *Update zzz with full link
  *Update notes.html with new references
     Search for ??
     Include chapter xx heading
