@@ -1,7 +1,7 @@
 <!-- Pages 123-126 -->
-The vulgar voices erupted as if from a single mouth. They rose together with a greasy smoke from the courtyard which stretched a light blue sheet across the window opening, then tore itself apart inside the room where they had just sat down. 
+The vulgar voices erupted as if from a single mouth. They rose together with a greasy smoke from the courtyard which spread a light blue sheet across the window opening, then tore itself apart inside the room where they had just sat down. 
 
-"Again this evening..." said Amalia, getting up and going to close the window. 
+"Again this evening..." said Amalia, getting up to close the window. 
 
 The two girls were sitting beside Amalia, in front of Giulio; for Daniel all that remained was to take the head of the table, with his back to the window, from where, now, the curtain of smoke unraveled over the table. Daniel tried to break it up by fanning it with a napkin. 
 
@@ -42,7 +42,7 @@ Daniel asked himself if the talk about wine constituted neutral territory, or if
 
 Daniel shook his head. Tell that to those who are trying to make a Barolo or a Barbaresco, a Brunello, a proper Chianti, or a Burgundy or Bordeaux. If you don't have that land there, under the grape clusters and the firmly planted roots, they remain copies, imitations: wines for simple palates that drink the names and the labels.
 
-Maria followed their discussion, but Nicole was bored, touching the arm of her friend to pull her into another conversation. So Daniel paused and turned toward Nicole and asked, "Nicole, have I ever asked you if you like wine?"
+Maria followed their discussion, but Nicole was bored, touching the arm of her friend to pull her into another conversation. So Daniel paused, turned toward Nicole and asked, "Nicole, have I ever asked you if you like wine?"
 <!-- Page 125 -->
 
 The question came to him without thinking, and after saying it Daniel reflected that it was exactly so, that he'd never asked her if she liked wine, and not because he hadn't had the the time or the occasion, but because he took it for granted, he saw that she drank it in moderation, and to him that was good, better wine than all the rest.
@@ -55,7 +55,7 @@ She had replied in a naive and cheerful tone, and Daniel was impressed. He who'd
 
 The sudden silence between them was interrupted by the repeated sounds of bottles being shattered. 
 
-"The target practice has started. Imbeciles," said Amalia, getting up and going to open the window, immediately followed by the girls and Daniel.
+"The target practice has started. Imbeciles," said Amalia, getting up to open the window, immediately followed by the girls and Daniel.
 
 Below, in the yard, in front of the long table, against the farmhouse wall, Baravalle and his friends had built a pyramid of empty bottles.
 
@@ -66,7 +66,7 @@ They had taken off their shirts, some remained in their undershirts, some stripp
 Daniel looked down and then, hearing a noise behind him, turned around just in time to see Giulio stand up suddenly from his seat to get to the stairs. Daniel moved quickly across the room and blocked the door. He grabbed him by the arms and held him, looking in his eyes. He said, "Just wait before you go down, you understand?"
 <!-- Page 126 -->
 
-"How much do you want us humbled, Giulio... how much?" Amalia had said, without leaving the window, with an almost imploring tone, full of gentleness and pain. Then, without waiting for answer that she knew, at least in words, wouldn't come, she crossed the room, went to the cupboard, and took out a bottle of clear liquid. She returned to the window and hurled it forcefully towards the pile of old furniture, sending it crashing against the back of an iron bed. Then she pulled a box of kitchen matches from her pocket, lit one, and dropped it between the broken bottles. The flame in contact with the alcohol started a horizontal bluish blaze, rising up immediately, blood-red, becoming a bonfire. Meanwhile screams and curses rose from the yard, and the men and women fled through the vines and along the avenue of beech trees, leaving shirts and purses on the chairs and table. The room had grown silent: Amalia, leaning on the windowsill, watched the tall tongues of fire lick the wall of the house. Nicole and Maria had embraced each other. Daniel, followed by Giulio, rushed down the stairs and out onto the yard, and now they turned towards the bonfire to gauge its strength and the danger.
+"How much do you want us humbled, Giulio... how much?" Amalia had said, without leaving the window, with an almost imploring tone, full of gentleness and pain. Then, without waiting for the answer that she knew, at least in words, wouldn't come, she crossed the room, went to the cupboard, and took out a bottle of clear liquid. She returned to the window and hurled it forcefully towards the pile of old furniture, sending it crashing against the back of an iron bed. Then she pulled a box of kitchen matches from her pocket, lit one, and dropped it between the broken bottles. The flame in contact with the alcohol started a horizontal bluish blaze, rising up immediately, blood-red, becoming a bonfire. Meanwhile screams and curses rose from the yard, and the men and women fled through the vines and along the avenue of beech trees, leaving shirts and purses on the chairs and table. The room had grown silent: Amalia, leaning on the windowsill, watched the tall tongues of fire lick the wall of the house. Nicole and Maria embraced each other. Daniel, followed by Giulio, rushed down the stairs and out onto the yard, and now they turned towards the bonfire to gauge its strength and the danger.
 
 In the distance, from the depths of the vines, was heard a hoarse voice, half-drunk, furious, screaming: "Amalia, you're crazy..."
 
