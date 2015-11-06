@@ -127,8 +127,7 @@ A magpie quickly crossed the road, tapping the hood of the Mercedes.
 
 They started to hear shots in the distance.  
 
-"Cannons, on [Guarene](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#guarene)... here, the weather's like this: clouds take off from [Monviso or Bisalta](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#monviso) and bring hail. Then it's goodbye to the harvest."
-
+"[Cannons, on Guarene](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#guarene)... here, the weather's like this: clouds take off from [Monviso or Bisalta](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#monviso) and bring hail. Then it's goodbye to the harvest."
 <!-- Page 8 -->
 
 Luciano slowed the car, they were at the coast. He opened the car window, sticking his head outside, while an intense perfume of linden invaded the inside of the car.
