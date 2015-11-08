@@ -197,7 +197,7 @@ Helene replied that she would put him through to the doctor.
 
 "Yesterday... she also didn't know where she was... and now she's not answering."
 
-There was a silent pause, then Marc said: "Daniel, this isn't the first time. I'm worried, but not too much. [At this point there's no want to track her. I promised you that we'll succeed](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alpunto). [Rest easy](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#resteasy). I'm thinking of her."
+There was a silent pause, then Marc said: "Daniel, this isn't the first time. I'm worried, but not too much. [At this point there's no way to track her. I promised you that we'll succeed](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alpunto). [Rest easy](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#resteasy). I'm thinking of her."
 
 Daniel nodded, as if Marc could see him, and put the receiver down before saying thanks. He got out of bed and took refuge in the bathroom, under a hot shower.
 <br/><br/><br/>
@@ -209,7 +209,7 @@ He sat down at the table, and was soon joined by Silvio, who offered him a menu.
 
 "I only need a large salad," said Daniel, "and a bottle of non-carbonated mineral water."
 
-"You came to Piedmont for fasting, eh?" Silvio asked cheerfully, [taking the liberty of a familiarlity that he instinctively knew was possible](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#permettendosi): the Frenchman had a blue gaze and an amiable smile. And in fact, Daniel smiled.
+"You came to Piedmont for fasting, eh?" Silvio asked cheerfully, [assuming a familiarity that he instinctively knew was possible](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#permettendosi): the Frenchman had a blue gaze and an amiable smile. And in fact, Daniel smiled.
 
 "No no," he said, "it's that I'm a little overweight and I can only do this in the morning. I'll make up for it tonight."
 
@@ -334,13 +334,13 @@ Silvio shrugged, continuing to clean the glasses. "Globalization, Luciano. The F
 
 "[How she's become, Amalia](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#howamalia)."
 
-"[Giulio would like to work the vineyard](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#guiliowould)."
+"[Giulio would like to work the vineyard](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#giuliowould)."
 
 "Yeah, but for Amalia it's a cemetery..."
 
 "[It's still her father, down there: struck down](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#itsstillher)..."
 
-"There's always been death in the vineyard, first with famine, then with the Germans, then with tractors when things were better. Just like going to sea or a factory, Luciano. And, knock on wood: like driving a car."
+"There's always been death in the vineyard, first with famine, then with the Germans, then with tractors when things got better. Just like going to sea or a factory, Luciano. And, knock on wood: like driving a car."
 
 Luciano asked for another beer. He said, "Isn't it too late to do a tasting [of real French wine](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ofrealfrench)?"
 
@@ -365,7 +365,6 @@ The second card that Daniel had thrown on the table was that of the spider web. 
 
 For the third and final card, Daniel had put the same wine in two unlabeled bottles, a white, the Ceretto Blang&egrave;, asking which of the two wines was better. They split almost in half. The English couple turned out to be the winners because they claimed they "didn't know how to choose," thus getting the right answer by default.
 <br/><br/><br/>
-LEFT OFF
 
 While going down Via Maestra, passing the lighted shop *Donne Vincenti*, containing delicate silver and black dresses that were draped on the female mannequins, top bargains, and pants with loud stripes, Daniel smiled, inhaling large puffs from the first Gauloise of the day. He recalled the faces of disbelief after he'd said the wines were the same. It was then that he'd seen Amalia appear in the room, hands firmly on her hips and with a smile split between satisfaction and defiance, as if she wanted to tell him that she wouldn't have been deceived. Deceived about what? Daniel asked himself, turning in the *Savona* piazza. About the wine? About what?
 
