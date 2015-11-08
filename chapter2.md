@@ -28,8 +28,7 @@ No, Daniel knew, she wouldn't allow it. That, too, was a way to blackmail him, t
 
 "...Without asking Laurencine about it?"
 
-"We can always tell her that [it was a sudden
-decision](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#itwasasudden), Marc."
+"We can always tell her that [it was a sudden decision](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#itwasasudden), Marc."
 
 "You know it's not believable..."
 
@@ -43,7 +42,7 @@ Daniel went to the bathroom to take a shower, then went down and asked for stron
 
 "Isn't that a risk for your palate?" asked Silvio.
 
-"If it's not hot enough to burn...."
+"If it's not hot enough to burn..."
 
 "[The coffee overpowers the flavors](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thecoffee)."
 
@@ -55,7 +54,7 @@ Daniel shrugged his broad shoulders, as if to shrug off the compliment.
 
 "Is the car here?" he asked, while blowing into his cup. 
 
-The night before, coming back, he'd asked if it was possible to get a car for the next day. He wanted to tour Barbaresco, Neive, Mango, go up to see some of the vineyards, stop at some wine bars, look at some labels, sample some wine. Smell other odors.
+The night before, coming back, he'd asked if it would be possible to get a car for the next day. He wanted to tour Barbaresco, Neive, Mango, go up to see some of the vineyards, stop at some wine bars, look at some labels, sample some wine. Smell other odors.
 
 "I told Luciano half-past nine. He'll be here in a minute."
 
@@ -150,7 +149,7 @@ Daniel lit the cigarette, through a light wind that moved the vine leaves. The d
 
 "Here, too...  they tell a lot of stories. I remember one time two of my colleagues were tasting a bottle of Bordeaux. They found all the flavors possible, then one of them said that he tasted iron, and the other said he'd tasted leather. They went on, affirming and denying. It ended there. But a year later it was learned that a key tied to a leather cord was found in the barrel that the bottle came from."
 
-"If it's true: fine noses and fine palates. If not: it's equally as good" said Luciano, putting out the cigarette between his fingers and tossing it in between the rows. "Here at Sottimano they make a good Barbaresco."
+"If it's true: fine noses and fine palates. If it isn't: equally as good..." said Luciano, putting out the cigarette between his fingers and tossing it in between the rows. "Here at Sottimano they make a good Barbaresco."
 
 Daniel stood up, followed by the dog, walking, brushing the leaves, leaning on the ground, ripping up some grass, listening with his nose to scents and smells.
 
@@ -165,7 +164,7 @@ Climbing uphill, they crossed hazelnut groves, clean as a billiard cloth. Rectan
 
 At the bar in the piazza, Luciano ordered a Poretta beer and Daniel asked for a glass of Sottimano Cott&agrave;.
 
-"Speaking of Sottimano, I believe I've had a revelation...ask for a bit of castelmagno cheese, it'll accompany it well."
+"Speaking of Sottimano, I believe I've made a discovery... ask for a bit of castelmagno cheese, it'll accompany it well."
 
 Daniel smiled, and said "Why don't the Giacosa siblings take care of Ginotta? Is it a vineyard?"
 
@@ -201,7 +200,7 @@ Daniel shook his head and stroked the beast, who had rested his muzzle on his sh
 
 "Let's try to find him an owner..."
 
-"[If there's one to be found, I guess](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#iftheresone)."
+"[One's already been found, I think](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#iftheresone)."
 <br/><br/><br/>
 
 "[One assesses a wine using chemistry to identify its constituents](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#oneassesses), while tasting records our reactions to and the interactions between those components."
@@ -212,7 +211,7 @@ This was the lesson Daniel liked least, all theoretical, abstract, but he inevit
 
 Daniel had returned to the *Tastevin* to face the 19 for the second lesson. He'd found Giulio waiting for him. He had the dog with him, who'd been kept in the courtyard of the wine-bar. As in the *Savona*, with Silvio, he knew by Giulio's look upon seeing the mutt that he should have worked out an agreement, but he couldn't leave it behind. 
 
-Daniel felt that they had an increased number of participants for this talk, compared to the previous evening: local faces, severe rural faces, and gentlemen of excessive elegance for the place and time.
+Daniel felt that they had an increased number of participants for this talk, compared to the previous evening: local faces, stern rural faces, and gentlemen of excessive elegance for the place and time.
 
 "Let's say that there are some red wines, and we're going to see that it's red, let's say that some wines are less red, ros&eacute;s, and then say that there are whites. But no, they aren't white, but green, yellow, and gold, and which green, and which yellow, and which shade of gold. We talk about colors, but the wines are changing, they are alive, their color can never be steady, sharp. Have you heard of the basic colors? Red, orange, yellow, green, blue and violet are the basic colors of wine, from their encounters and intersections arise shades. 
 
@@ -241,8 +240,7 @@ He gave him a light clap on the shoulder with his wide hand and walked away. Giu
 
 "Do you have a name?" he asked, taking his head in his hands. "And what would it be, and how can we find it out?"
 
-"So many questions. [Everything isn't about
-wine](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#everythingisnt)..."
+"So many questions. [Everything isn't about wine](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#everythingisnt)..."
 
 The voice came to him from behind with a tone that was firm and calm. Daniel turned around. It was Amalia, holding in one hand a bottle from the tasting and two glasses that she placed, passing Daniel, on a small round table made of stone.
 

@@ -56,8 +56,7 @@ Amalia came into the kitchen while Daniel turned off the gas.
 
 Amalia poured the coffee in silence. Looking at Flop, she said "Maybe we should keep a dog, a guard dog..."
 
-"[If no one comes, we'll poison it after a few
-days](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ifnoonecomes)".
+"[If no one poisons it for you after a few days](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ifnoonecomes)".
 
 Daniel went out to the yard with a cup of coffee and walked toward what was left of the vineyard. He went down the hill, soft now in the full sun, and between weeds and briars glimpsed new shoots and old rotten poles. Daniel thought it would require a lot of work to put it back on track, but that it would be worth it. The green pigment of the berries contrasted here and there with the tender colored vine leaves and the black thorn brambles: it was a chaos of vegetation that called for new geometry.
 
