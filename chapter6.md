@@ -43,7 +43,7 @@ Daniel shook his head, he said: "Some tourists hike, some get a room in an *agri
 
 They were seated in white plastic chairs. 
 
-"[Invent some contraption and do more harvests than all the Barolo in Cannubi](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#inventsuch)," Luciano said, and added: "Looking for a glass of Favorita?"
+"[Invent some contraption and harvest more than all the Barolo in Cannubi](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#inventsuch)," Luciano said, and added: "Looking for a glass of Favorita?"
 
 Daniel nodded, "If there's nothing local..."
 
