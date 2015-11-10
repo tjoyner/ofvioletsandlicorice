@@ -62,7 +62,7 @@ He began to play the cards. Out came the King of Hearts. He would have preferred
 
 Nicole looked at the card and laughed.
 
-"Affair means many things. Everyone had their own affairs. I have my affairs. You and Mom have your affairs. Amalia and Giulio have their affairs. You have your affairs."
+"Affair means many things. Everyone has their own affairs. I have my affairs. You and Mom have your affairs. Amalia and Giulio have their affairs. You have your affairs."
 
 "Do I have more of them?" Daniel asked, without looking at her.
 
