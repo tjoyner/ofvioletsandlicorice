@@ -31,13 +31,13 @@ Luciano was taken aback. He slowed on a curve, then returned his gaze to the rea
 
 Luciano didn't say anything else, he continued to drive smoothly through the hills, continuously rising and falling, passing through towns both empty and flourishing. Daniel didn't even look at the names. He had rolled down the window, squinting his eyes and resting his nose on the edge of the window. He had to feel the *terroir*, that was the secret. It was all there, or everywhere: in every bottle he had drunk and in every town in the world; the secret to understanding was just this: grasp the *terroir*, easy to say, but a Zen practice to put in place, or an equally complex communion with existence.
 
-Daniel was in a good mood. He liked to travel with his nose, stick it into the earth, launch his sense of smell beyond the view. Homer, more than Lucretius, was his poet, how many smells and scents there were in his poems. In his old age, he'd thought many times, he like to write a book about the smells and scents in the classics. In those, at least, he'd had time to read. 
+Daniel was in a good mood. He liked to travel with his nose, stick it into the earth, launch his sense of smell beyond the view. Homer, more than Lucretius, was his poet, how many smells and scents there were in his poems. In his old age, he'd thought many times, he'd like to write a book about the smells and scents in the classics. In those, at least, that he'd had time to read. 
 
 "Would you like to eat or drink something?"
 
 Daniel heard Luciano's voice and opened his eyes. There were in Roddino. They had climbed high, he had begun to lose the smells that he knew and tried to hold on to them, to drag them along: [getting away and going up had been good for him](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#allontanarsi). It was a good exercise that Luciano, unknowingly, had offered him. He said yes, he would gladly eat something.
 
-"[Two *tagliatelle*, with some Gemma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#duetagliatelle)," said Luciano, "listen... we've climbed into the dark Langhe, [where even real fathers no longer grow](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#noncrescono)."
+"[Two *tagliatelle*, with some Gemma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#duetagliatelle)," said Luciano, "listen... we've climbed into the dark Langhe, [where even poppies don't grow](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#noncrescono)."
 
 <div style="text-align: center">
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908239619/of-violets-and-licorice-chapter-19">&larr;&nbsp;Chapter 19</a>&nbsp;&nbsp;
