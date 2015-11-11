@@ -27,7 +27,7 @@ Daniel knew that was what she meant, but it was the way things were being said t
 
 Baravalle had laughed but believed them, and the cards were switched to bottles: it was up to Daniel to do the strip-tease, he had to strip them bare, like an x-ray from Molinette Hospital.
 
-"How do you feel about it, Daniel?" Amalia had asked. And Daniel had said that he could try, but inside he thought, wistfully, [that it was easier for him, usually, to undress a bottle than a woman](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chnonunadonna).
+"How do you feel about it, Daniel?" Amalia had asked. And Daniel had said that he could try, but inside he thought, wistfully, [that it was easier for him, usually, to undress a bottle than a woman](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chenonunadonna).
 
 "I can try: on the quality of the wine or how it's made I shouldn't have much trouble. He'll try to trip me up on vintages and producers."
 
