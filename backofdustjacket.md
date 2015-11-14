@@ -1,4 +1,4 @@
-*Daniel looked at the glass: another prominent wine. From its color, Daniel thought it must also be Nebbiolo. It was also ruby red, with the sparkle of a sunset, when the sun, the color of a squeezed orange, goes to die between one hill and the next, as if it were dancing the tango with a gay melancholy.*
+*Daniel looked at the glass: another prominent wine. From its color, Daniel thought it also came from Nebbiolo, the color was again garnet red with sparkles of sunset, when the sun, the color of a squeezed orange, goes to die between one hill and the next, as if it were dancing the tango with a gay melancholy.*
 
 It is the fragrance of wine and the earth, above all, that tell us this is a story of the Langhe. Then it is the shyness of a proud and fragile woman, the curves of the hills, a gambling debt, a duel to the last glass...
 
