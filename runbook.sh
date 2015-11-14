@@ -7,7 +7,7 @@ echo "<div style='page-break-before:always;'></div><h1>Back of Dust Jacket</h1><
 sed -i '/<div style="text-align/,$d' backofdustjacket.md.tmp
 # TODO: update last chapter
 typeset -i i LAST_CHAP
-LAST_CHAP=22
+LAST_CHAP=23
 
 FNAME="ofvioletsandlicorice_ch1_${LAST_CHAP}_`date +%m%d%Y`"
 sed -i "s/779\/ofviolets.*\.mobi/779\/$FNAME.mobi/" book.html
