@@ -125,10 +125,8 @@ He saw a car stop on Via Maestra and heard a horn beep. It was a silver Toyota S
 They passed through narrow villages and [countryside with enclosed industrial warehouses](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#countryside), a long row of hangars that blocked the view of the hills. Outlet, Trony, Casa della Luce, Divani & Divani: showrooms displaying tractors and Mercedes, [Magazzini del Giocattolo, Casa del Mobile da Giardino, Casa del Legno](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#magazzini), colored blue, yellow, and candy pink. Warehouses that made the streets look like one giant Lego.
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/128665608999/of-violets-and-licorice-chapter-2">&larr;&nbsp;Chapter 2</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129421655504/of-violets-and-licorice-chapter-4">Chapter 4&nbsp;&rarr;</a>
 
 </div>
-<script>
- setupLocSave();
-</script>

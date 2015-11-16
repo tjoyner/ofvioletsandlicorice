@@ -163,9 +163,8 @@ Daniel didn't know what choice to make. He said he'd like to make a phone call. 
 Daniel returned to the dining room and told Luciano that they would be going down to Genoa.
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130345019824/of-violets-and-licorice-chapter-8">&larr;&nbsp;Chapter 8</a>&nbsp;&nbsp;
+<a href="http://ofvioletsandlicorice.tumblr.com/post/130908013549/of-violets-and-licorice-chapter-10">Chapter 10&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

@@ -184,10 +184,8 @@ Silvio shrugged his shoulders again.
 "[It would seem strange that no one would have bothered to give her the good news](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#itwouldseem)..."
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130091632584/of-violets-and-licorice-chapter-7">&larr;&nbsp;Chapter 7</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130757370364/of-violets-and-licorice-chapter-9">Chapter 9&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

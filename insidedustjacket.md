@@ -18,6 +18,7 @@ Nico Orengo was born in Turin, where [he lives and works](http://ofvioletsandlic
 
 
 <br><br></p><div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/127002293149/cover">&larr;&nbsp;Cover</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/127000556994/of-violets-and-licorice-back-of-dust-jacket">Back of Dust Jacket&nbsp;&rarr;</a>
 </div>

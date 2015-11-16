@@ -92,10 +92,8 @@ Amalia came out of the store with a boy, both laden with packages. Daniel went t
 
 Daniel nodded, he suddenly felt tired.
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129232051344/of-violets-and-licorice-chapter-3">&larr;&nbsp;Chapter 3</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129778824974/of-violets-and-licorice-chapter-5">Chapter 5&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

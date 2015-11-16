@@ -40,10 +40,8 @@ Daniel heard Luciano's voice and opened his eyes. There were in Roddino. They ha
 "[Two *tagliatelle*, with some Gemma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#duetagliatelle)," said Luciano, "listen... we've climbed into the dark Langhe, [where even poppies don't grow](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#noncrescono)."
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908239619/of-violets-and-licorice-chapter-19">&larr;&nbsp;Chapter 19</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908282434/of-violets-and-licorice-chapter-21">Chapter 21&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

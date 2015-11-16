@@ -63,6 +63,7 @@ while ((i <=LAST_CHAP)); do
 done
 
 echo "<div style='page-break-before:always;'><h1>Notes, Questions, Uncertainties</h1><br/><br/>" | cat - notes.html > notes.html.tmp
+sed -i '/<div style="text-align/,$d' notes.html.tmp
 CHAPLIST="$CHAPLIST notes.html.tmp"
 
 

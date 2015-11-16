@@ -22,10 +22,7 @@ Then he resumed the story, with the same tone, gentle and monotonous, of a few m
 "Francesca reacted well to the missed meeting, she said she would save the Pulcinella for another occasion, she didn't specify which, and she didn't speak again of the 'slutty' blouse."
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908013549/of-violets-and-licorice-chapter-10">&larr;&nbsp;Chapter 10</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908092409/of-violets-and-licorice-chapter-12">Chapter 12&nbsp;&rarr;</a>
-
 </div>
-<script>
-setupLocSave();
-</script>

@@ -109,10 +109,8 @@ He let her take his hand, and looked in her eyes. Then, as if someone had turned
 "Would you like to dance?" he asked, and without waiting for a response, he put an arm around her waist and began to whistle *Under the Bridge of Paris*, while to his nose there returned, insistently, a scent of violets.
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908308029/of-violets-and-licorice-chapter-22">&larr;&nbsp;Chapter 22</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties">Note, Questions, Uncertainties&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

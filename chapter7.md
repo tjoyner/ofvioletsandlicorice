@@ -63,10 +63,8 @@ Daniel asked, "Where is Giulio now?"
 
 Amalia cried, silently. Flop came and licked the hand that remained in her lap. Daniel felt her fist pressing into his hand, as if it wanted to disappear.
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129929958959/of-violets-and-licorice-chapter-6">&larr;&nbsp;Chapter 6</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130345019824/of-violets-and-licorice-chapter-8">Chapter 8&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

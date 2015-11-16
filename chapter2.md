@@ -319,10 +319,8 @@ Daniel laughed, but not so much for the posture in which he had been seen, but f
 Daniel looked at Amalia, who was again distant, far away. The man got up from his chair, said that it was late, thanked her and made arrangements for the next evening. The woman acknowledged him with a nod. Daniel, followed by the dog, went back into the cone of light from the *Tastevin*.
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/126100415919/of-violets-and-licorice-chapter-1">&larr;&nbsp;Chapter 1</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129232051344/of-violets-and-licorice-chapter-3">Chapter 3&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

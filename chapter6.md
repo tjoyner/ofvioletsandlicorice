@@ -78,10 +78,8 @@ The room was in the shade. Flop slept in the bathroom, crouched under the sink. 
 "They wouldn't know where to begin with a dog..."
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129778824974/of-violets-and-licorice-chapter-5">&larr;&nbsp;Chapter 5</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130091632584/of-violets-and-licorice-chapter-7">Chapter 7&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

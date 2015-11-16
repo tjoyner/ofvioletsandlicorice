@@ -427,10 +427,8 @@ Daniel looked at Maria. He'd never had a story, much less a story with an Asian.
 "And your father sends you, Maria?" Daniel asked, biting the Gauloise that he had just lit.
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/127000556994/of-violets-and-licorice-back-of-dust-jacket">&larr;&nbsp;Back of Dust Jacket</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/128665608999/of-violets-and-licorice-chapter-2">Chapter 2&nbsp;&rarr;</a>
 
 </div>
-<script>
- setupLocSave();
-</script>

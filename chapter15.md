@@ -79,10 +79,7 @@ While Giulio disappeared into the hallway, Daniel saw that there wasn't any brea
 He heard his voice echoing clearly in the valley, and the voice of Amalia, very near, reply "Look in the cupboard, near the door. There should also be some fresh breadsticks."
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908130064/of-violets-and-licorice-chapter-14">&larr;&nbsp;Chapter 14</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908177659/of-violets-and-licorice-chapter-16">Chapter 16&nbsp;&rarr;</a>
-
 </div>
-<script>
-setupLocSave();
-</script>

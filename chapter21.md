@@ -50,10 +50,8 @@ The air was warm and aromatic, he detected the scent of peach and would have pre
 
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908262644/of-violets-and-licorice-chapter-20">&larr;&nbsp;Chapter 20</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908308029/of-violets-and-licorice-chapter-22">Chapter 22&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

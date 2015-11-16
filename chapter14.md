@@ -112,10 +112,8 @@ Amalia was rigid, she didn't seem to notice that embrace, she stood motionless i
 Daniel held her like that, for some time, waiting for her to raise her face up to his, and for another kiss to come. But it never did.
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908111454/of-violets-and-licorice-chapter-13">&larr;&nbsp;Chapter 13</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908149194/of-violets-and-licorice-chapter-15">Chapter 15&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

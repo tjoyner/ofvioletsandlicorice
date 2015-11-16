@@ -316,10 +316,8 @@ Eta Beta snorted in annoyance, glanced at the narrow road between the reddish wa
 "And it was she who invited him to plunge [one afternoon, at the end of the evening](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#unpomeriggio), by writing 'Where will you take me Saturday night?' and with the answer 'Wherever you would like,' Giocomo committed the first, irreparable, [or as he had long continued to judge it, mistake](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ocosilungamente). She suggested a remote town, right on the border between Italy and France, a place that Giocomo knew well, a place for gourmets that he had visited as a boy, with friends. It was a restaurant enclosed in the valley, beyond Carletti, there for more than fifty years, with the same menu: rabbit, goat and beans, [belurini flowers](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#belurini) and stuffed onion, in the winter, artichoke torte, at Easter, vegetable torte. How could Francesca have known that place?"
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130757370364/of-violets-and-licorice-chapter-9">&larr;&nbsp;Chapter 9</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908034409/of-violets-and-licorice-chapter-11">Chapter 11&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

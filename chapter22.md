@@ -60,10 +60,8 @@ Someone, maybe Maria, maybe Amalia, pushed Flop outside the hall. Daniel asked h
 Daniel put down his glass as the applause reached him. He was tired, he saw a glass door to the garden, opened it and tried to breathe any scent that wasn't wine. He smelled an odor of fresh manure and went over to it.
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908282434/of-violets-and-licorice-chapter-21">&larr;&nbsp;Chapter 21</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908326604/of-violets-and-licorice-chapter-23">Chapter 23&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

@@ -78,10 +78,8 @@ Daniel looked at her and smiled. He shook his head. He said "True, and you don't
 Nicole smiled at him, reached her hand toward the deck of cards. She took one and turned it over: it was the Queen of Hearts. She winked at him. She asked "Can I have a Coke?"
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908218404/of-violets-and-licorice-chapter-18">&larr;&nbsp;Chapter 18</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908262644/of-violets-and-licorice-chapter-20">Chapter 20&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

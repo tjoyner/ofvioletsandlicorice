@@ -82,10 +82,8 @@ Daniel didn't comment. He said "Land rich in limestone, sandstone, here the vine
 He'd decided to stay, extending the course wasn't a problem. He could possibly talk about white wines, bottling, [the demand for *grappas*](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thedemandfor) and also, the thing he thought most superfluous, the pairing of wine and food. And now that he'd decided he felt relaxed, nothing seemed like a problem, things would go as they would go, both with Amalia, and with Nicole if she decided to join him.
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129421655504/of-violets-and-licorice-chapter-4">&larr;&nbsp;Chapter 4</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129929958959/of-violets-and-licorice-chapter-6">Chapter 6&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>

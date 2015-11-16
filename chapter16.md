@@ -79,10 +79,8 @@ Daniel started towards the stairs, preceded by Giulio, holding in his hands a ra
 It was then that Flop began barking.
 
 <div style="text-align: center">
+<a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908149194/of-violets-and-licorice-chapter-15">&larr;&nbsp;Chapter 15</a>&nbsp;&nbsp;
 <a href="http://ofvioletsandlicorice.tumblr.com/post/130908197564/of-violets-and-licorice-chapter-17">Chapter 17&nbsp;&rarr;</a>
 
 </div>
-<script>
-setupLocSave();
-</script>
