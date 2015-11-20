@@ -106,7 +106,7 @@ Daniel shook his head: "Stubbornness won't be enough to restore the vineyard, re
 
 He let her take his hand, and looked in her eyes. Then, as if someone had turned on music, he got up and pushed her to the center of the yard.
 
-"Would you like to dance?" he asked, and without waiting for a response, he put an arm around her waist and began to whistle *Under the Bridge of Paris*, while to his nose there returned, insistently, a scent of violets.
+"Would you like to dance?" he asked, and without waiting for a response, he put an arm around her waist and began to whistle *Under the Bridges of Paris*, while to his nose there returned, insistently, a scent of violets.
 
 <div style="text-align: center">
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
