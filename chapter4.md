@@ -2,7 +2,7 @@
 They arrived at a small square where there was a carousel with small seats fastened to chains. Amalio slowed down and stopped the car.
 
 "*[Kick-in-the-ass](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#kickintheass)*,
-not elegant but that's what it's called. As a young girl I was crazy about the carousel, it seemed to fly... then of course came the kick..."
+not elegant but that's what it's called. As a young girl I was crazy about the carousel, it seemed to fly... then, of course, came the kick..."
 
 Amalia laughed, Daniel looked at her white teeth, sharp, and thought of her character. She was hot-headed, mercurial. A few hours earlier she'd wounded him with a cold, hard stare, had slammed the door in his face, and now she'd taken him in the car and told him about her childish games. 
 
@@ -10,7 +10,7 @@ Daniel got out of the car and went over to the booth near the cash register of t
 
 "Is the carousel closed?" asked Daniel.
 
-"We open this evening, after 7pm," answered the woman, annoyed.
+"We open this evening, after 7 pm," answered the woman, annoyed.
 
 "I'd like to give a gift to a friend of mine. It's her birthday..."
 
@@ -68,7 +68,7 @@ And when she finally spoke to him it was to ask if he would return immediately t
 
 "She comes and goes, from her mother's home to some rehab center. She has a drug problem."
 
-Amalia slowed down. She asked "How old is she?"
+Amalia slowed down. She asked, "How old is she?"
 
 "Twenty-three..."
 

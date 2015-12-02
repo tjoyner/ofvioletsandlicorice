@@ -17,9 +17,9 @@ He kept his eyes down on the blue and white checkered tablecloth. Daniel looked 
 
 "Thank you for today," she said.
 
-They stayed quiet for a few minutes, then she said "There's a full moon in Ginotta tonight. Do you want to go for a short walk?"
+They stayed quiet for a few minutes, then she said, "There's a full moon in Ginotta tonight. Do you want to go for a short walk?"
 
-Daniel nodded and said "A few steps would also be good for Flop."
+Daniel nodded and said, "A few steps would also be good for Flop."
 
 He finished eating the salad and a bit of castelmagno cheese, and drinking his glass of Nebbiolo, while Amalia was conversing with some customers.
 
@@ -33,7 +33,7 @@ They reached the car and took the ring road to Altavilla. They reached Ginotta, 
 
 "I saw vines clinging to the Elm, which is recovering, there's a lot to replant... but the job is possible," Daniel said, "as long as we want to do it."
 
-This time Amalia had not turned away. She looked down, and whispered "Perhaps it is doable." Daniel reached out, opened his hand, then he realized that he was about to caress her face and felt a shyness. He closed his hand into a fist and dropped his arm to his side. Amalia smiled at him, and said, with a shine in her eyes: "I don't need paternal caresses." He was dumbfounded, unable to answer. Then she came up boldly and putting her hands on his hips, pulled him against her, looking into his eyes, then kissed him on the mouth: a long, warm kiss.
+This time, Amalia had not turned away. She looked down, and whispered, "Perhaps it is doable." Daniel reached out, opened his hand, then he realized that he was about to caress her face and felt a shyness. He closed his hand into a fist and dropped his arm to his side. Amalia smiled at him, and said, with a shine in her eyes: "I don't need paternal caresses." He was dumbfounded, unable to answer. Then she came up boldly and putting her hands on his hips, pulled him against her, looking into his eyes, then kissed him on the mouth: a long, warm kiss.
 <br/><br/><br/>
 <!-- Page 47 -->
 "Changing taxis, eh? I don't know if I blame you."
@@ -54,9 +54,9 @@ Luciano opened the door for Daniel, outside of the *Savona*.
 
 Daniel laughed "You're best calling card for The Office of Tourism."
 
-"No, it's that I can't take all of this wine rhetoric any more. We have only that and we build castles of lies. And there's no place for anything, for a memory. We all seem born gentlemen since this is no longer a land of ruin."
+"No, it's that I can't take all of this wine rhetoric anymore. We have only that and we build castles of lies. And there's no place for anything, for a memory. We all seem born gentlemen since this is no longer a land of ruin."
 
-"This is good thing," said Daniel, who wanted to think about his own issues.
+"This is a good thing," said Daniel, who wanted to think about his own issues.
 
 "I don't deny it, but to forget it is to forget the pain of so much blood shed. These were hills of blood, before wine. And instead of keeping silent, who wants to remember it? Here on April 25 we celebrate with <em>Go Wine</em>, and the Cervere Leeks in the church square more than the fall of the resistance. Since there's no more struggle, there's no more memory."
 
@@ -69,7 +69,7 @@ From the valley floor they rose up towards Barolo, through pastel vineyards, row
 
 He looked away from the view and thought of the kiss he'd received, the night before, from Amalia. It had something of violence, of rapacity, that covered tenderness and sweetness. He'd been troubled, almost unable to react, to answer her with equal intensity, even if he would have wanted to. They had remained motionless in the yard, then she said, heading for the front door, "Can I ask you to leave the car in Piazza *Savona* and the keys in the hotel, Daniel?"
 
-Daniel had returned to the hotel dazed, and he continued to be as he thought that after the kiss she hadn't even used the familiar "tu", even if the way in which she'd said his name was gentle.
+Daniel had returned to the hotel dazed, and he continued to be as he thought that after the kiss she hadn't even used the familiar *tu*, even if the way in which she'd said his name was gentle.
 
 He asked, "What's the relationship status of the Giacosa siblings?"
 

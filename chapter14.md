@@ -9,9 +9,9 @@ Daniel had been caught up in the thought of the meeting between Amalia and Giuli
 
 Daniel had told her they'd just arrived at the *Savona*, that Nicole was also there, and she had calmed down. "How's your daughter?" she'd asked. And he had rambled on about the intense perfume of the oleanders in Nice, on the colors of the rocks and the leaves of the trees of the Val Roya, on the unique arcades of Cuneo. 
 
-But Amalia had cut him short, saying "Send him home afterwards. I'll be waiting for him."
+But Amalia had cut him short, saying "Send him home afterward. I'll be waiting for him."
 
-And now he and Nicole were in his room defending themselves from the celebrations of Flop. It was Silvio who reminded him, holding out a bowl of soup as they entered the room, that Flop was above waiting for them. Daniel had completely forgotten. 
+And now he and Nicole were in his room defending themselves from the celebrations of Flop. It was Silvio who had reminded him, holding out a bowl of soup as they entered the room, that Flop was above waiting for them. Daniel had completely forgotten. 
 <!-- Page 113 -->
 
 He opened the door of Nicole's room, then headed toward his. 
@@ -45,19 +45,19 @@ Nicole opened the door of her room and Flop slipped between the door and the fra
 
 "Maybe he's thirsty... should I leave it to you?"
 
-Nicole nodded to him, yawning next to her suitcase, then after a moment of indecision turned to Daniel, threw her arms around him, and kissed him on the cheek. "Ciao, Dad," she said "I'm glad to be here with you."
+Nicole nodded to him, yawning next to her suitcase, then after a moment of indecision turned to Daniel, threw her arms around him, and kissed him on the cheek. "Ciao, Dad," she said, "I'm glad to be here with you."
 
 Daniel, caught by surprise, mumbled something and retreated into the hallway, then turning around and leaning in the doorway said, "If you need anything, knock on the wall: I'm on the other side. Good Night."
 <br/> <br/> <br/> 
 
-He slept a dreamless sleep, a sleep long and calm. When he awoke, Daniel had two surprises: Nicole and Flop were not in their room, and Luciano was waiting at the bar to bring him to Ginotta at Amalia'a invitation.
+He slept a dreamless sleep, a sleep long and calm. When he awoke, Daniel had two surprises: Nicole and Flop were not in their room, and Luciano was waiting at the bar to bring him to Ginotta at Amalia's invitation.
 
 He asked Silvio what time it was, and for a double espresso. Sitting at the counter, he listened to Silvio tell him that an hour earlier, at 9, the Japanese girl had come to take his daughter and Flop, and that Nicole &ndash; "That's her name, right?" &ndash; had asked him to tell her father that they were going for a ride through the hills of the Roero and that around noon they would phone to ask where they could go to eat together. 
 
 Daniel, blowing on his hot coffee, asked himself if he was all right or not with Nicole's decision: not even waiting for the first day, not asking him if he had already made plans for the day, he felt a lack of sensitivity. But as he got to the bottom of his cup he also told himself that her independence so suddenly in a place that was new to her could be a good sign of adaptability. Besides, he sympathized with Maria. Yes, Maria &ndash; it seemed to him that the two girls had quickly developed a rapport, her presence was fortunate, an encounter that continued to lighten his stay in Alba. 
 
 <!-- Page 115 -->
-He asked "They also took Flop?"
+He asked, "They also took Flop?"
 
 Silvio told him yes, saying shortly after that Luciano was outside waiting for him. Daniel hadn't called him, wasn't expecting him.
 
@@ -75,7 +75,7 @@ While driving to Altavilla, Luciano turned to asked about Nicole.
 
 Now Daniel remembered the illness of his wife and asked, "Yes, my daughter arrived, everything's fine. But how's your wife?"
 
-"Good, my wife is also good. You know women... they panic. She just had a drop in pressure, a bit of tachycardia, and she goes haywire. At home we have all the stabilizers for these cases. But if the doctor doesn't give them to her, they don't work."
+"Good, my wife is also good. You know women... they panic. She just had a drop in pressure, a bit of tachycardia, and she goes haywire. At home, we have all the stabilizers for these cases. But if the doctor doesn't give them to her, they don't work."
 
 Some purple iris was beginning to pierce, above the river bank, the bushes and grass at the edge of the cornfields. It was a day of warm wind that rose from the plain of Cuneo, after climbing over the small Alps of Bisalta. A wind that brought jitters, and rippled the first leaves of the poplars.
 <!-- Page 116 -->

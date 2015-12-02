@@ -8,7 +8,7 @@ It was two in the morning when he returned to his room, greeted by a jubilant, a
 It was a world of sick feelings. Where to start, Daniel had asked himself, listening to Flop chew the bread slowly and, he would have said, with more respect than voracity. 
 <br/><br/><br/>
 
-On the Ginotta grounds, Baravalle had filled folding tables full of food and was celebrating. On an impromptu barbecue made with stones and a grill he cooked steaks, sausages, and vegetables for friends who came and went, to admire his conquest up close. 
+On the Ginotta grounds, Baravalle had filled folding tables full of food and was celebrating. On an impromptu barbecue made with stones and a grill, he cooked steaks, sausages, and vegetables for friends who came and went, to admire his conquest up close. 
 <!-- Page 77 -->
 
 Amalia had closed many of the interior doors of the house, but that didn't stop Baravalle from climbing the stairs to a side door and showing the rooms of the farmhouse. Inside he was more cautious, but in the yard and in the vineyards he seemed like the owner of all Ginotta. Amalia, behind the shutters, was despairing and in the grip of an uncontrollable rage. She saw Baravalle in his undershirt, with a straw hat on his head, sitting at the head of the table, declaring that he would have turned over his part and, without despairing, all of the hills of the vineyard.
@@ -31,7 +31,7 @@ Indeed, it wasn't. But precisely because of that, Amalia had to find the energy 
 <br/> <br/> <br/>
 <!-- Page 78 -->
 
-To be punctual for the plane's 5:20 PM arrival, Daniel had asked Luciano to pick him up at the *Savona* at 10, so they'd have plenty of time. The evening before he had eaten in the hotel with Amalia, who had promised to bring Flop to Ginotta. 
+To be punctual for the plane's 5:20 pm arrival, Daniel had asked Luciano to pick him up at the *Savona* at 10, so they'd have plenty of time. The evening before he had eaten in the hotel with Amalia, who had promised to bring Flop to Ginotta. 
 
 "He'll guard it, you'll see..."
 
@@ -62,7 +62,7 @@ Luciano phoned at a quarter to 10: a complication prevented him from coming to p
 
 Daniel lights his first cigarette of the day, cursing the unexpected difficulty. He couldn't arrive late to Nice. He wouldn't be able to forgive himself. And they wouldn't forgive him.
 
-He sits at a table, looks at the time, and orders an apertif, a Pastis. He knows it's early and that surely he'll be banging his head, but the agitation that is overtaking him is rising. Within himself he begins to feel that he doesn't know how to resolve his problem. [He hears himself saying: "Make something happen. I beg you: make something happen and find a solution."](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#hehearshimself) He says it clenching his fists, looking at the Pastis that Silvio had brought him, along with a small carafe of ice water. 
+He sits at a table, looks at the time, and orders an aperitif, a Pastis. He knows it's early and that surely he'll be banging his head, but the agitation that is overtaking him is rising. Within himself he begins to feel that he doesn't know how to resolve his problem. [He hears himself saying: "Make something happen. I beg you: make something happen and find a solution."](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#hehearshimself) He says it clenching his fists, looking at the Pastis that Silvio had brought him, along with a small carafe of ice water. 
 
 Then he feels steps behind him and a cold draft, as if it were the air conditioning. He turns around.
 
@@ -86,7 +86,7 @@ The stranger asks Silvio if it would be possible to get some tea.
 
 Daniel looks confusedly at his Pastis: he had finished it without realizing it. He orders a second one from Silvio.
 
-"Don't overdo it, Daniel. Remember, we have to go to Nice. There's a ways to go, and there are many curves. Wouldn't it be better to eat something?"
+"Don't overdo it, Daniel. Remember, we have to go to Nice. There's a long way to go, and there are many curves. Wouldn't it be better to eat something?"
 
 "You're taking me to Nice?" Daniel asks hopefully, pushing away the Pastis, which Silvio had put on the table along with a pot of hot water and a cup containing a tea bag.
 
@@ -96,7 +96,7 @@ The stranger takes the string of the tea bag, raises it with an annoyed look, th
 
 "How do we get there?" asks Daniel, looking at the second glass of Pastis, which Silvio hadn't taken off the table.
 
-The stranger sips with light disgust from his glass of tea. Then, very slowly, as if he were talking to himself, asks "Who do we have here that could take us, since Luciano is grappling with one of his wife's usual attacks of coronary arrhythmia?"
+The stranger sips with light disgust from his glass of tea. Then, very slowly, as if he were talking to himself, asks, "Who do we have here that could take us, since Luciano is grappling with one of his wife's usual attacks of coronary arrhythmia?"
 
 "Who?" Daniel asks, with increasing anxiety, "I wouldn't really know who..."
 
@@ -296,7 +296,7 @@ Floriana didn't pick up the joke, and Daniel didn't hear it, he was absorbed in 
 
 <!-- Page 91 -->
 
-"Giacomo phoned his friend Gariazzo at the store and asked if he could check the time of Alla Breve performed by Gould. Of course, Khira was right, it was 41. He thanked the friend, and remained smoking and turning over the business card with Francesca's phone and e-mail. Should he call her, or write to her? He decided to write to tell her that they'd both been wrong, by a second, not so much in absolute terms, but enough for so short a performance."
+"Giacomo phoned his friend Gariazzo at the store and asked if he could check the time of Alla Breve performed by Gould. Of course, Khira was right, it was 41. He thanked the friend and remained smoking and turning over the business card with Francesca's phone and e-mail. Should he call her, or write to her? He decided to write to tell her that they'd both been wrong, by a second, not so much in absolute terms, but enough for so short a performance."
 <br/> <br/> <br/>
 
 "We've reached San Dalmazzo," interrupted Daniel, who had seemed to have fallen asleep, "My grandfather used to come here to buy meat and snails. He'd stay for one night and one morning. At home they thought he had a female distraction, and when he returned my grandmother used to say that she knew about the *crava*, about the goat, and that even the meat smelled of goat, and that it was useless to go such a long way, and take so much time, when you could buy it in France, where it was better. My grandfather countered that the snails of San Dalmazzo were unique. But my grandmother didn't give up, she shrugged her shoulders and said that [she didn't want the snails to suffer](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#snailssuffer)."
@@ -310,7 +310,7 @@ Eta Beta snorted in annoyance, glanced at the narrow road between the reddish wa
 
 "Giacomo didn't ask, she told him that she was separated, she had settled a relationship that had dragged on for too long at the beginning of that September, and now found herself with two children to share with her ex-husband.
 
-"One morning, they had now spent a couple of weeks on their daily correspondence, Giacomo wrote 'It's raining, can I use the familiar *tu*?' She replied that she failed to understand the connection, but that it was fine. And Giacomo began to use the familiar with her, and she did with him. Moreover, the tone of their more or less short letters had become more than friendly, I would say affectionate, almost flirtatious. Francesca told him that she had a nickname, Cisca, and often she signed her letters with many small *k*s that stood for *kisses*, [of course there were many and a few possibly had the taste of her lips on them](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#piuerano), [but whenever there was one, and just one *k*](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#malevolte), Giacomo would stop and and stare at the letter as if it were an island of attainable happiness. It was enough to take the plunge and swim.
+"One morning, they had now spent a couple of weeks on their daily correspondence, Giacomo wrote 'It's raining, can I use the familiar *tu*?' She replied that she failed to understand the connection, but that it was fine. And Giacomo began to use the familiar with her, and she did with him. Moreover, the tone of their more or less short letters had become more than friendly, I would say affectionate, almost flirtatious. Francesca told him that she had a nickname, Cisca, and often she signed her letters with many small *k*s that stood for *kisses*, [of course there were many and a few possibly had the taste of her lips on them](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#piuerano), [but whenever there was one, and just one *k*](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#malevolte), Giacomo would stop and stare at the letter as if it were an island of attainable happiness. It was enough to take the plunge and swim.
 <!-- Page 93 -->
 
 "And it was she who invited him to plunge [one afternoon, at the end of the evening](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#unpomeriggio), by writing 'Where will you take me Saturday night?' and with the answer 'Wherever you would like,' Giocomo committed the first, irreparable, [or as he had long continued to judge it, mistake](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ocosilungamente). She suggested a remote town, right on the border between Italy and France, a place that Giocomo knew well, a place for gourmets that he had visited as a boy, with friends. It was a restaurant enclosed in the valley, beyond Carletti, there for more than fifty years, with the same menu: rabbit, goat and beans, [belurini flowers](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#belurini) and stuffed onion, in the winter, artichoke torte, at Easter, vegetable torte. How could Francesca have known that place?"

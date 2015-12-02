@@ -24,7 +24,7 @@ Daniel shrugged, looked for boulder where he could sit, and lit a cigarette: it 
 
 "Time helps. The traumas are absorbed with time and the memory softens them. Now Ginotta really belongs to you, and her feeling of guilt for having unintentionally caused your father's death may become the impetus that will restore life to this hill."
 
-"It wasn't Amalia's fault. That night my father had gone out to cover the vines, not to look for her. I had said to him that Amalia was safe in the stable. She's not to blame," Giulio said forcefully, standing up and pointing torwards the stable: She was there, all warm with her dolls, I had accompanied her there. Dad knew it, I had told him as I went back to the kitchen with my mother and he ran with the tarps toward the vines."
+"It wasn't Amalia's fault. That night my father had gone out to cover the vines, not to look for her. I had said to him that Amalia was safe in the stable. She's not to blame," Giulio said forcefully, standing up and pointing towards the stable: She was there, all warm with her dolls, I had accompanied her there. Dad knew it, I had told him as I went back to the kitchen with my mother and he ran with the tarps toward the vines."
 
 Daniel saw a shadow stretching across the ground and cutting across his legs. He turned: it was Amalia. He looked at her quizzically. He looked at Giulio. He saw the eyes of two siblings meet. Then those of Giulio slowly lowered. 
 
@@ -97,7 +97,7 @@ She looked down, touched the chain with her thumb and index finger.
 
 "I'll tell you why," Daniel continued, "for stubbornness, not feelings. And if there were feelings, it was less than your need to be stubborn. With yourself, with others."
 
-He stopped playing with the chain, reached out her hand, looking for his.
+She stopped playing with the chain, reached out her hand, looking for his.
 
 "It's not true..." she said.
 <!-- Page 155 -->

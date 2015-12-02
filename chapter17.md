@@ -18,13 +18,13 @@ Daniel sat down in the cretonne armchair, near the window.
 
 He hadn't expected that request.
 
-"To Tokyo, with Maria?" he asked, to buy time. He looked at her, she had a calm demeanor, was smiling. Buying more time, he said "Start by hearing what your mother has to say... we need her to agree. You know."
+"To Tokyo, with Maria?" he asked, to buy time. He looked at her, she had a calm demeanor, was smiling. Buying more time, he said, "Start by hearing what your mother has to say... we need her to agree. You know."
 
-He'd taken the easy road, and felt ashamed. He'd let her do whatever she wanted and the results had certainly arrived. But it was hard to choose 'no,' once you got off on the wrong foot. He said: "We don't know much about Maria... Japan is far away..."
+He'd taken the easy road and felt ashamed. He'd let her do whatever she wanted and the results had certainly arrived. But it was hard to choose 'no,' once you got off on the wrong foot. He said, "We don't know much about Maria... Japan is far away..."
 
-She laughed and threw her arms around his neck: "Japan is far away and we don't know much about Maria, Dad... but what do you know about where I go, everyday, and with whom?"
+She laughed and threw her arms around his neck: "Japan is far away and we don't know much about Maria, Dad... but what do you know about where I go, every day, and with whom?"
 
-Daniel wanted to tell her that he knew that, he knew that very well. He'd seen the result. But he said nothing. He let himself be taken into the embrace, and closed his eyes. He couldn't remember when his daughter had embraced him so fondly and happily. He felt stunned, while Flop joined their embrace, fumbling with his paws on her calves and yelping.
+Daniel wanted to tell her that he knew that, he knew that very well. He'd seen the result. But he said nothing. He let himself be taken into the embrace and closed his eyes. He couldn't remember when his daughter had embraced him so fondly and happily. He felt stunned, while Flop joined their embrace, fumbling with his paws on her calves and yelping.
 
 Daniel left her embrace. He didn't want to be there when the call from his ex-wife came. He said, "I'll wait for you downstairs. I'll ask for breakfast."
 
@@ -65,7 +65,7 @@ Daniel got up from the table, nervously. Then he sat down. He didn't know what t
 
 Nicole arrived to break the silence, pouting, saying: "As usual, at the beginning it was 'no.' By the end of the call, she said that she would discuss it with you and then decide. I was wrong to tell her that Maria took care of the wines for her father. She immediately thought it was a conspiracy between you two to get me away from her."
 
-This time Daniel laughed. He said, "It would have been better to tell her that Maria was a dancer in a club, for Christ's sake, or a bouncer at a gay disco. Why did you have to tell her she dealt with wine?"
+This time, Daniel laughed. He said, "It would have been better to tell her that Maria was a dancer in a club, for Christ's sake, or a bouncer at a gay disco. Why did you have to tell her she dealt with wine?"
 <!-- Page 130 -->
 
 Nicole relaxed. She'd feared that her father would rush to call her mother back for yet another quarrel. Luciano had stood up, he didn't want to enter into their discussion. He wanted to leave them but without appearing rude. He wanted to say goodbye, ask Daniel if he needed him.

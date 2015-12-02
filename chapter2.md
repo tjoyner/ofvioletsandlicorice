@@ -24,7 +24,7 @@ No, Daniel knew, she wouldn't allow it. That, too, was a way to blackmail him, t
 
 <!-- Page 24 -->
 
-"Help me convince her, Marc, to come here. I could extend my stay, tour Piedmont, maybe go to Tuscany, go to the Veneto. Take her out of Paris, take her out of the loop. Help me Marc, put her on a plane or on a train: Nice and Turin aren't far away."
+"Help me convince her, Marc, to come here. I could extend my stay, tour Piedmont, maybe go to Tuscany, go to the Veneto. Take her out of Paris, take her out of the loop. Help me, Marc, put her on a plane or on a train: Nice and Turin aren't far away."
 
 "...Without asking Laurencine about it?"
 
@@ -50,7 +50,7 @@ Daniel went to the bathroom to take a shower, then went down and asked for stron
 
 "I was told that you were good."
 
-Daniel shrugged his broad shoulders, as if to shrug off the compliment.
+Daniel shrugged his broad shoulders as if to shrug off the compliment.
 
 "Is the car here?" he asked, while blowing into his cup. 
 
@@ -104,17 +104,17 @@ But the dog seemed to have already guessed Luciano's order, because it was crouc
 
 "Don't exaggerate," said Daniel, "in France they're more traditional, but here, from you, in Italy, there's more innovation, more invention."
 
-"Regarding inventive, we are inventive. Here in Langhe, everything's invention. We're always inventing. We invented the Langhe, a paradise of vineyards for lovers of wine, and tourists.  'Come to the paradise of Langhe. Great food, great wine, hills that are the envy of Tuscany.' All bull. Here you don't know what to do except eat and get drunk, if you can afford it. Otherwise you can go see a couple of games of *pallone elastico*, hoping they are properly rigged, or be drowned in the fog that bites you from mid-October onward. Or escape..."
+"Regarding inventive, we are inventive. Here in Langhe, everything's invention. We're always inventing. We invented the Langhe, a paradise of vineyards for lovers of wine, and tourists.  'Come to the paradise of Langhe. Great food, great wine, hills that are the envy of Tuscany.' All bull. Here you don't know what to do except eat and get drunk, if you can afford it. Otherwise, you can go see a couple of games of *pallone elastico*, hoping they are properly rigged, or be drowned in the fog that bites you from mid-October onward. Or escape..."
 
 Daniel was beginning to understand why the taxi driver, Luciano, as he seemed to be called, only drank beer.
 
-He asked "What kind of people are the Giacosa?"
+He asked, "What kind of people are the Giacosa?"
 
 "You mean Amalia? Beautiful woman, wild..."
 
 "I meant both of them," Daniel emphasized. 
 
-"They are orphans. The father had a horrible death in the vineyard, taken by lightning. Then the mother left shortly after of a broken heart. They came out on their own. She, Amalia, was a mother to Giulio, and never married. They had resources, sold some of their countryside property, now have lodgings, shops, the *Tastevin*. And also land, Ginotta, abandoned... a vineyard on the Barbaresco ridge that's the envy of those in the know."
+"They're orphans. The father had a horrible death in the vineyard, taken by lightning. Then the mother left shortly after of a broken heart. They came out on their own. She, Amalia, was a mother to Giulio, and never married. They had resources, sold some of their countryside property, now have lodgings, shops, the *Tastevin*. And also land, Ginotta, abandoned... a vineyard on the Barbaresco ridge that's the envy of those in the know."
 
 <!-- Page 27, top -->
 
@@ -275,10 +275,10 @@ Amalia filled the glasses and pushed the tray towards the center of the table. D
 
 "Does that happen to you a lot?" she asked with a half smile. 
 
-Daniel shrugged, and thought of Laurencine, Nicole.
+Daniel shrugged and thought of Laurencine, Nicole.
 <!-- Page 34 -->
 
-"When it's got to happen...,", he replied, returning for a moment to look at that slice of breast that shone like an August moon. Amalia noticed it and straightened her blouse, but without showing any annoyance. She was about to answer him, when out came Giulio.
+"When it's got to happen...,", he replied, returning for a moment to look at that slice of breast that shone like an August moon. Amalia noticed it and straightened her blouse, but without showing any annoyance. She was about to answer him when out came Giulio.
 
 "There's another full house for tomorrow night, Daniel, you'll see. The 'designer' wines intrigue us almost as much those that come to us from California, Peru, and Uruguay."
 
@@ -288,7 +288,7 @@ Daniel shrugged, and thought of Laurencine, Nicole.
 
 "I prefer your Barbaresco," answered Daniel, taking a slice of toma cheese.
 
-Amalia was absent from their discussion. Daniel saw her wandering gaze, and supposed that her thoughts were elsewhere. She expressed annoyance at their words, nervously taking slices of salami and chunks of cheese from the platter.
+Amalia was absent from their discussion. Daniel saw her wandering gaze and supposed that her thoughts were elsewhere. She expressed annoyance at their words, nervously taking slices of salami and chunks of cheese from the platter.
 
 "What do you intend to do with the dog?" Amalia asked again.
 

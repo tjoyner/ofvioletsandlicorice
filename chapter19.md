@@ -5,7 +5,7 @@ She and Nicole were at a restaurant in Treiso. They had eaten a small [fritto mi
 
 "Sooner rather than later. I have appointments in Tuscany and Veneto: I've stayed in Piedmont too long..." she looked Nicole in the eye and reached a hand towards hers, touching it gently. She said: "I don't think your father would let you come with me. I don't think so at all, but my invitation to Tokyo stands: whenever you want, whenever you can."
 
-Nicole turned her hand on its back and lightly squeezed that of Maria. She said slowly, in a low voice: "I wouldn't know exactly how to tell him... I'm going with you... now. He would say no, he's afraid of what my mother's reaction would be. And then it would be unfair of me not to stay with him. Lately we haven't seen each other much. Even if now I see him taken by this drama. Amalia and Giulio both seem crazy to me, and to you?"
+Nicole turned her hand on its back and lightly squeezed that of Maria. She said slowly, in a low voice: "I wouldn't know exactly how to tell him... I'm going with you... now. He would say no, he's afraid of what my mother's reaction would be. And then it would be unfair of me not to stay with him. Lately, we haven't seen each other much. Even if now I see him taken by this drama. Amalia and Giulio both seem crazy to me, and to you?"
 
 Maria shrugged, continuing to caress Nicole's palm with her fingertips.
 
@@ -39,22 +39,22 @@ Daniel was waiting in the dining room of the *Savona*. He was at his table. In f
 
 "I ate, curiously, hot things. I drank a little. I'm fine, Daddy."
 
-Daniel looked at her. She was a child. To him she seemed to still be a child. He had to correct himself. He asked her: "Do you still want to stay here, for a few days?"
+Daniel looked at her. She was a child. To him, she seemed to still be a child. He had to correct himself. He asked her: "Do you still want to stay here, for a few days?"
 <!-- Page 135 -->
 
 "Otherwise?" Nicole asked.
 
 "We could go see your grandparents' house in Villefranche. Take a ride in Provence."
 
-For a moment Nicole had hoped her father would say 'Go with Maria,' but then laughed at the improbability of that desire and answered: "Have you finished, here? It's nice here."
+For a moment, Nicole had hoped her father would say 'Go with Maria,' but then laughed at the improbability of that desire and answered: "Have you finished, here? It's nice here."
 
 Daniel looked at the cards and began dealing them on the table. "[Will they tell me that, or do I have to say it myself](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#melodovranno)?"
 
-Nicole laughed. She said "[You know it, Daddy. But you have to hear it from them also](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tulosai)."
+Nicole laughed. She said, "[You know it, Daddy. But you have to hear it from them also](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tulosai)."
 
 Daniel looked at her again, it was the second time, in a few minutes, that she called him Daddy. It was the second time she'd called him Daddy since he picked her up at Nice.
 
-He began to play the cards. Out came the King of Hearts. He would have preferred the King of Diamonds. He said "I have to settle an affair."
+He began to play the cards. Out came the King of Hearts. He would have preferred the King of Diamonds. He said, "I have to settle an affair."
 
 "Just one?" Nicole asked mischievously.
 
@@ -70,12 +70,12 @@ Nicole looked at the card and laughed.
 
 Daniel looked at her and smiled. He shook his head. He said "True, and you don't always know why. It's something like the weather, perhaps. It gets cloudy. It gets sunny. There's rain. There's wind. You don't know why, and into what weather you'll pass through."
 
-"Sometimes a glance, a caress, is enough" said Nicole.
+"Sometimes a glance, a caress, is enough," said Nicole.
 
 "Also just a kiss. Just one..." said Daniel.
 
 <!-- Page 136 -->
-Nicole smiled at him, reached her hand toward the deck of cards. She took one and turned it over: it was the Queen of Hearts. She winked at him. She asked "Can I have a Coke?"
+Nicole smiled at him, reached her hand toward the deck of cards. She took one and turned it over: it was the Queen of Hearts. She winked at him. She asked, "Can I have a Coke?"
 
 <div style="text-align: center">
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>

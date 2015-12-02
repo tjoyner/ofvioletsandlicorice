@@ -1,7 +1,7 @@
 <!-- Pages 137-139 -->
-"How do you feel?" asked Luciano. But the question didn't need an answer, so he continued, looking at him in the rear view mirror with the gaze of someone who could understand how Daniel was feeling: "Worse than if it were your stuff, right?" and then: "This is still the old Langhe, where they celebrate honor or a joke gone too far with the madness of the walls and of the earth. The rest is gone. Nothing else, just money disguised as vineyards and democracy disguised as communism."
+"How do you feel?" asked Luciano. But the question didn't need an answer, so he continued, looking at him in the rearview mirror with the gaze of someone who could understand how Daniel was feeling: "Worse than if it were your stuff, right?" and then: "This is still the old Langhe, where they celebrate honor or a joke gone too far with the madness of the walls and of the earth. The rest is gone. Nothing else, just money disguised as vineyards and democracy disguised as communism."
 
-Luciano fell silent, then said "Does it disturb you if I talk?"
+Luciano fell silent, then said, "Does it disturb you if I talk?"
 
 Daniel shook his head, he felt the sweat on his hands and the dryness of his throat. He rubbed his hands on his pants and swallowed. He hadn't followed what Luciano was saying, to him the words seemed to arrive like leaves whipped by the wind, fragments of the memory of something that had already been repeated countless times. He just had to go and taste a bit of wine and nothing else. That was the challenge, with his palate and his nose and his experience. Nothing else. And if there was more, it wasn't the time to remember it. 
 
@@ -20,9 +20,9 @@ Daniel shrugged. He could have responded to him: for a look. Or as he told Nicol
 
 And maybe it was true. Inside that response was also the look and the kiss of Amalia, but it was inside: the look and the kiss of Amalia weren't part of the challenge. Was that so? Daniel didn't want to ask himself that. It would be like trying to solve the mystery of existence, or even, simply, that of the human universe.
 
-He laughed and said "[We could say that it attracts more pussy than who knows what](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#unpelodifiga). But it's true and it isn't true. Right?"
+He laughed and said, "[We could say that it attracts more pussy than who knows what](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#unpelodifiga). But it's true and it isn't true. Right?"
 
-Luciano was taken aback. He slowed on a curve, then returned his gaze to the rear-view mirror, looking for Daniel's eyes.
+Luciano was taken aback. He slowed on a curve, then returned his gaze to the rearview mirror, looking for Daniel's eyes.
 
 "I wouldn't say that. Certainly Amalia can put thoughts in your head. That too, of course. But I would go further, believe me. If you thrashed Baravalle, for me it would be like regaining a bit of memory of this land, of how it was. A bit of justice in the world, [to put it grandly](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dirlaallagrande)."
 

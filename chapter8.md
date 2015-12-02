@@ -3,7 +3,7 @@ He helped her get up and, following her directions, crossed the small courtyard 
 
 "Leave me alone..." she said to him, now with a rough tone, her hands covering her face. 
 
-Daniel left, finding Flop at the bottom of the stairs, waiting. He retraced his steps on Via Maestro with anxiety, he couldn't feel any part of it, and the street seemed inclined underneath his feet. He leaned against the doorjamb of a shop to catch his breath, and only after a moment was he able to decipher the words of a female voice asking him if he was unwell. He focused on the Asian face surrounded by cascade of smooth black hair. It was Maria.
+Daniel left, finding Flop at the bottom of the stairs, waiting. He retraced his steps on Via Maestro with anxiety, he couldn't feel any part of it, and the street seemed inclined underneath his feet. He leaned against the doorjamb of a shop to catch his breath, and only after a moment was he able to decipher the words of a female voice asking him if he was unwell. He focused on the Asian face surrounded by a cascade of smooth black hair. It was Maria.
 
 "Not feeling well?"
 
@@ -11,7 +11,7 @@ Daniel tried to smile at her. He took a deep breath to dispel the nagging sense 
 
 "I have a car here, around the corner. Rest on my arm."
 
-Daniel pulled away from the door frame, took her arm, and followed her. In a few meters they reached the car. She opened the door for him, and Daniel sank into the seat. 
+Daniel pulled away from the door frame, took her arm, and followed her. In a few meters, they reached the car. She opened the door for him, and Daniel sank into the seat. 
 
 <!-- Page 60 -->
 
@@ -87,13 +87,13 @@ Her heard Maria's voice asking him "Are you married?" Daniel nodded.
 
 "Is she a student?"
 
-Daniel thought about whether to change the subject or to let it go on. At times he wanted to drink wine without tasting it, without feeling anything but its liquidity, its flow down the throat, as naturally as looking out to the sea.
+Daniel thought about whether to change the subject or to let it go on. At times, he wanted to drink wine without tasting it, without feeling anything but its liquidity, its flow down the throat, as naturally as looking out to the sea.
 
 A cheese course arrived, small slivers of goat cheese, triangles of fresh toma.
 
 "She doesn't do anything. She argues with me and with her mother. Runs away, disappears."
 
-Maria stopped eating. Daniel continued: "It's not an interesting story. It's a banal story. In and out of clinics and detox centers like thousands, or should I say millions, of others of her generation. At times it seems like she's coming out of it, then she relapses and hell begins again."
+Maria stopped eating. Daniel continued: "It's not an interesting story. It's a banal story. In and out of clinics and detox centers like thousands, or should I say millions, of others of her generation. At times, it seems like she's coming out of it, then she relapses and hell begins again."
 
 "How long has this been going on?" asked Maria. 
 
@@ -101,7 +101,7 @@ Maria stopped eating. Daniel continued: "It's not an interesting story. It's a b
 
 <!-- Page 63 -->
 
-Maria let Daniel pour his heart out. Then she said "We've all gone close to that hell, and most times it was because we didn't accept ourselves, we covered our diversity with simple, common, clothes. Have you ever thought that, Daniel?"
+Maria let Daniel pour his heart out. Then she said, "We've all gone close to that hell, and most times it was because we didn't accept ourselves, we covered our diversity with simple, common, clothes. Have you ever thought that, Daniel?"
 
 The server arrived with a cart of digestifs. He suggested a Barolo Chinato and an ice. And while Maria said that she would prefer a limoncello, Daniel reflected on her words. What did they mean?
 
@@ -121,7 +121,7 @@ Daniel took his time, finished his Barolo Chinato.
 
 That's what Marc had said also, to he and Laurencine. But what he meant wasn't so clear.
 
-Maria knew that he was troubled. She said "I also wasn't very comfortable with my body. I suffered for years."
+Maria knew that he was troubled. She said, "I also wasn't very comfortable with my body. I suffered for years."
 
 Daniel looked at her, incredulous. She was very beautiful, with a firm body, not skinny: he remembered the first night at the *Tastevin*, when he thought she was a mannequin. 
 <!-- Page 64 -->
@@ -155,9 +155,9 @@ Daniel looked toward the reception counter, there was Silvio, with a gloomy face
 
 "He put it up for two hours and finally he succeeded," Silvio said angrily, "after he lost it, he recovered twice, but finally was able to leave it permanently on the table. The person dancing up there is the new owner, Baravalle."
 
-Daniel asked for something strong to drink, headed towards the private room, entered the small office, and sat down at the desk. He was hot, he took off his jacket while Silvio came in with a bottle of whiskey, two glasses, and a cup of ice. He poured the liquor and asked if Daniel wanted some ice. Daniel shook his head, and asked "Why did he do it?"
+Daniel asked for something strong to drink, headed towards the private room, entered the small office, and sat down at the desk. He was hot, he took off his jacket while Silvio came in with a bottle of whiskey, two glasses, and a cup of ice. He poured the liquor and asked if Daniel wanted some ice. Daniel shook his head, and asked, "Why did he do it?"
 
-Silvio sat at the head of the desk, drank some whiskey, and said "He wasn't even drunk, he only seemed angry, very angry. He came in at 7 and called Baravalle on the phone." 
+Silvio sat at the head of the desk, drank some whiskey, and said, "He wasn't even drunk, he only seemed angry, very angry. He came in at 7 and called Baravalle on the phone." 
 
 "Who is Baravalle?" asked Daniel, drinking his whiskey in small sips.
 
@@ -167,11 +167,11 @@ A winemaker, wines of average quality, that are exported wholesale to Germany. O
 
 "What do you mean, 'not just'?"
 
-Silvio smiled, he filled his glass halfway, and filled Daniel's to the brim. 
+Silvio smiled, he filled his glass halfway and filled Daniel's to the brim. 
 
 "To get that land he's tried to marry Amalia, or maybe he really wanted to... who knows. The fact is that regarding Ginotta, or maybe both of them, he's never given up. And now that fool Giulio has given him the knife by the handle. Why? I'd like to know myself."
 
-Daniel perhaps sensed the reason intuitively, but tried to dismiss it as an irrational act, unthinkable, a latent disease, never declared, or declared so softly as to seem innocuous. And instead, the jealously of that morbid bond had exploded with destructive force. The euphoria of the loss of Ginotta and the punishment of Amalia would be replaced, now, with a devastating sense of guilt.
+Daniel perhaps sensed the reason intuitively, but tried to dismiss it as an irrational act, unthinkable, a latent disease, never declared, or declared so softly as to seem innocuous. And instead, the jealousy of that morbid bond had exploded with destructive force. The euphoria of the loss of Ginotta and the punishment of Amalia would be replaced, now, with a devastating sense of guilt.
 
 "Where's Giulio now?"
 

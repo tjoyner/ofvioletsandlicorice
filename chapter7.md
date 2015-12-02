@@ -9,9 +9,9 @@ He said, "When?"
 
 <!-- Page 56 -->
 
-"Friday, in Nice, on the 5:20pm flight from Orly. Are you happy, Daniel?"
+"Friday, in Nice, on the 5:20 pm flight from Orly. Are you happy, Daniel?"
 
-Marc's voice was always more festive, and Daniel felt more annoyed. He tried to mask it, and said "Thanks Marc, I'll do everything possible for Nicole. Let me make arrangements, then I'll talk to you."
+Marc's voice was always more festive, and Daniel felt more annoyed. He tried to mask it, and said "Thanks, Marc, I'll do everything possible for Nicole. Let me make arrangements, then I'll talk to you."
 
 He hung up and felt a deep sadness descend on his shoulders. In his head bounced the kiss of Amalia and the face of Nicole. How would they mix together?
 
@@ -21,9 +21,9 @@ Come on Flop - we're going...
 
 <br/><br/><br/>
 
-He climbed Via Maestra, he liked the colors of the small town, the reds lit by the sun, the browns of the bricks of the austere church, the glossy black of the cobblestones. The lower town, protected, towers not too imposing, piazzas where you can talk from one side to the other without raising your voice too much. Flop ran back and forth, as if he wanted to make sure his presence was known, and Daniel remembered that in Bergolo he hadn't wanted to get out of Luciano's car, as if afraid of being abandoned. Daniel made sure he heard his voice, urged him to run, then called him back. He thought that maybe he should buy him a collar, that it would give him security. He paused, smiled to himself, and wondered, security for whom?
+He climbed Via Maestra, he liked the colors of the small town, the reds lit by the sun, the browns of the bricks of the austere church, the glossy black of the cobblestones. The lower town, protected, towers not too imposing, piazzas where you can talk from one side to the other without raising your voice too much. Flop ran back and forth as if he wanted to make sure his presence was known, and Daniel remembered that in Bergolo he hadn't wanted to get out of Luciano's car, as if afraid of being abandoned. Daniel made sure he heard his voice, urged him to run, then called him back. He thought that maybe he should buy him a collar, that it would give him security. He paused, smiled to himself, and wondered, security for whom?
 
-He arrived at the *Tastevin*, the door was ajar, he asked permission and entered into the soft shadows of the room. Sitting at a table against the wall, he saw the soft curve of Amalia's back. She had before her a half-full glass of wine. He slowly went and sat in front of her. She had a handkerchief clenched in her fist, and her eyes were still red from crying. Daniel reached for her hand but she took it from the table to the safety of her lap.
+He arrived at the *Tastevin*, the door was ajar, he asked permission and entered into the soft shadows of the room. Sitting at a table against the wall, he saw the soft curve of Amalia's back. She had before her a half-full glass of wine. He slowly went and sat in front of her. She had a handkerchief clenched in her fist, and her eyes were still red from crying. Daniel reached for her hand, but she took it from the table to the safety of her lap.
 
 <!-- Page 57 -->
 
@@ -37,7 +37,7 @@ Daniel shrugged his shoulders, and with his finger stroked the wineglass. She lo
 
 "Don't you understand?"
 
-Daniel shook his head. No, he did not understand. He said "Maybe things were said to you that I don't know."
+Daniel shook his head. No, he did not understand. He said, "Maybe things were said to you that I don't know."
 
 "Yes, things were said that you don't know, but I'll tell you..." answered Amalia, moving her hand  towards the glass that Daniel, stretching his, held onto. Their fingers brushed and Daniel noticed that her nails had lost some of the pink enamel that had impressed him a few days before.
 
@@ -47,7 +47,7 @@ Daniel looked at their fingers resting on the glass, getting closer and closer, 
 
 "And you know what he told me? That it was because you'd talked to me. That for years he'd insisted that it be done, and it was because a stranger, a wine taster, said it to me that I agreed. You understand? As if I don't reason with my head and that I need you, who I don't even know, to change my mind."
 
-Amalia was furious, she tried to grab the glass, Daniel held it on the table. Her little finger touched him, he felt a tremor. She looked at him angrily, and tried to grab the glass. Daniel didn't give in, and he looked at her sweetly.
+Amalia was furious, she tried to grab the glass, Daniel held it on the table. Her little finger touched him, he felt a tremor. She looked at him angrily and tried to grab the glass. Daniel didn't give in, and he looked at her sweetly.
 
 "I arrived at this decision myself. I don't need advice from anyone. As if I hadn't already done so all these years..." 
 

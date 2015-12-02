@@ -2,7 +2,7 @@
 
 Luciano put the red leather suitcase on the counter and asked Silvio to open a beer. 
 
-"Who?" asked Silvio, rubbing his hand on the the worn leather.
+"Who?" asked Silvio, rubbing his hand on the worn leather.
 
 "A foreigner, French I think..."
 
@@ -12,7 +12,7 @@ Luciano put the red leather suitcase on the counter and asked Silvio to open a b
 
 Silvio went out from behind the reception counter and opened the door to the bar.   
 
-Luciano followed him into the dark room. He sat down on a stool, while Silvio opened the beer cooler.
+Luciano followed him into the dark room. He sat down on a stool while Silvio opened the beer cooler.
 
 "Where's he now?"
 
@@ -31,7 +31,7 @@ Luciano took a swig, then took the small bottle and started towards the hotel ex
 "It's a warm spring," answered Luciano, getting in the car.
 <br/><br/><br/>
 
-She was at the kitchen window, drying an espresso cup, when she saw a man emerge from the colors of the hazelnut trees. He came crawling on all fours looking at the ground, like he'd lost something. Amalia was curious: the man had strong shoulders, a large, golden-brown head, wide hands and a prominent nose. 
+She was at the kitchen window drying an espresso cup when she saw a man emerge from the colors of the hazelnut trees. He came crawling on all fours looking at the ground like he'd lost something. Amalia was curious: the man had strong shoulders, a large, golden-brown head, wide hands and a prominent nose. 
 
 She wondered what he was doing on the ground, there in [Elvio](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#elvio), with his nose in the grass. Was he drunk, maybe, or was he sick? 
 
@@ -42,7 +42,7 @@ She left by the small side door, crossed the abandoned vegetable garden, and sli
 
 It was 6 when Silvio saw him arrive.  He came in with an awkward and heavy step, banging his shoulder against the entrance door frame. He was tall and large. He was wearing a hazel colored jacket with baggy blue pants that were stained with dirt up to the knees. Silvio guessed he was the owner of the suitcase that Luciano had brought by and put under the counter. 
 
-The stranger hesitated a moment in the shaft of light coming through the entrance, then headed toward the reception desk. He stopped in front of Silvio and pulled  two tufts of grass out out of the pockets of his linen jacket, dropping them on the counter.
+The stranger hesitated a moment in the shaft of light coming through the entrance, then headed toward the reception desk. He stopped in front of Silvio and pulled  two tufts of grass out of the pockets of his linen jacket, dropping them on the counter.
 
 "This is chamomile," he said, taking a sprig and passing it under his nose, then offering it to Silvio. Silvio, irritated, sniffed and nodded.
 
@@ -72,7 +72,7 @@ Silvio felt embarrassed, [like he'd let him down](http://ofvioletsandlicorice.tu
 
 "We don't have many guests, I wanted you to choose the room: whether you prefer on the courtyard, or across from the piazza. It's noisier, but also brighter. How long do you intend to stay?"
 
-The stranger shrugged his shoulders, while putting his ID on the counter.
+The stranger shrugged his shoulders, putting his ID on the counter.
 
 "I don't know. I'm not sure yet... a week, let's say a week. Is that ok?"
 
@@ -95,7 +95,7 @@ The stranger reached it, opened the window and looked toward the ground, toward 
 
 "It's your choice," said Silvio, shrugging his shoulders and giving him the key. "Are you eating in the hotel?"
 
-"Eating...already, eating," answered the stranger, deep in thought. "Yes, I think it's a good time for it. Thank you." Then he picked up bag and returned to 15, shutting the door with his shoulder. 
+"Eating...already, eating," answered the stranger, deep in thought. "Yes, I think it's a good time for it. Thank you." Then he picked up the bag and returned to 15, shutting the door with his shoulder. 
 
 Silvio, curious, hurried down the hallway and went down the stairs, towards the ID card. Who was this guy? 
 <br/><br/><br/>
@@ -108,7 +108,7 @@ He drove slowly through the hills combed with vineyards. He looked in the rear-v
 
 He continued, "You don't see anyone working, but everything is as it should be. Not a leaf out of place or a cluster with one grape too many. Who works in the evening or night?" said Luciano, by now more to himself than to his taciturn client.
 
-"Herbicides, tractors, a little bit of chemistry... the fog and the sun does the rest, as long as the ground doesn't wear out..."
+"Herbicides, tractors, a little bit of chemistry... the fog and the sun do the rest, as long as the ground doesn't wear out..."
 
 They passed the *Tre Stelle* and they turned towards Neive. Luciano swerved slightly, not expecting an answer. He asked: "You're a wine connoisseur?"
 
@@ -155,7 +155,7 @@ They heard a voice, and footsteps behind the bar. "Would you like something to d
 "Virginio, a beer. The usual Moretti. My client would like to taste your Chardonnay. A small sip would be nice, ok?"
 <!-- Page 9 -->
 
-Without waiting for a response, he continued, "Do you remember, Virginio, the storm two years ago? It seemed to have burst from the sky: hail, water, and lightning on the vineyards on the eve of the harvest. And that poor Attilio, who looked at his vineyard reduced to a swamp and rushed to the church, deattached the crucifix, and dragged it through Barbaresco, screaming 'Christ, look! Look what you've done, look!', he had gone out of his mind, poor Attilio."
+Without waiting for a response, he continued, "Do you remember, Virginio, the storm two years ago? It seemed to have burst from the sky: hail, water, and lightning on the vineyards on the eve of the harvest. And that poor Attilio, who looked at his vineyard reduced to a swamp and rushed to the church, detached the crucifix, and dragged it through Barbaresco, screaming 'Christ, look! Look what you've done, look!', he had gone out of his mind, poor Attilio."
 
 The innkeeper nodded, filling a glass of white. The foreigner took the glass, looked at it, smelled it, and barely wet his lips. He put the glass back on the table, thanked them, and left. Luciano and the innkeeper looked at each other and shrugged their shoulders.
 
@@ -205,7 +205,7 @@ Daniel nodded, as if Marc could see him, and put the receiver down before saying
 
 He knew, going into the dining room, that this would be his table for his entire stay at the hotel. A small table for two, isolated from the longer tables, near a french door that opened onto a tiny courtyard of hydrangeas, huddled around a large linden tree.
 
-He sat down at the table, and was soon joined by Silvio, who offered him a menu.
+He sat down at the table and was soon joined by Silvio, who offered him a menu.
 
 "I only need a large salad," said Daniel, "and a bottle of non-carbonated mineral water."
 
@@ -226,7 +226,7 @@ Just like Burgundy, people were eating too much in the morning, even on weekdays
 This was why he'd been called there, to the land of the great reds, of the many great vineyards.
 <br/><br/><br/>
 
-Daniel ate the salad with pleasure, appreciating the radish and green pepper, tender carrots, salty capers, small black olives, valerian and endive, cucumber and lettuce heart. He discarded the garlic clove, but appreciated its scent, sweet and dry. He drank half a bottle of fortified mineral water, and rose from the table satisfied. He waved as he walked through the tables, took his key from the box behind the counter, and climbed the stairs to his room. He decided to sleep a couple of hours before going to his appointment.
+Daniel ate the salad with pleasure, appreciating the radish and green pepper, tender carrots, salty capers, small black olives, valerian and endive, cucumber and lettuce heart. He discarded the garlic clove, but appreciated its scent, sweet and dry. He drank half a bottle of fortified mineral water and rose from the table satisfied. He waved as he walked through the tables, took his key from the box behind the counter, and climbed the stairs to his room. He decided to sleep a couple of hours before going to his appointment.
 <br/><br/><br/>
 
 Amalia recognized him as soon as he entered the *Tastevin*. He was the clumsy man she'd seen emerge from beneath the hazel trees of Ginotta. She felt an immediate tenderness towards the large figure, awkward, blue-eyed with stiff, reddish hair matted on his broad forehead. He wore a carrot-colored linen jacket, very large, a pair of blue denim jeans, and a pomegranate-red collarless shirt with clear mother of pearl buttons, like those from Provence.
@@ -238,7 +238,7 @@ The wine bar was empty, it was a couple of hours before opening; in the shadows 
 Daniel had crossed the middle of Via Maestra, as Silvio had told him, looking at the men's and women's fashion stores, the jewelers, the delicatessens, and the many windows exhibiting magnum bottle trophies of Barolo and Nebbiolo, of Moscato and Chinato wines lying between nougat bars, bags of cornmeal biscuits and jars of floating dried mushrooms with silhouetted cartoons of black and white truffles. Then he found the sign of the enoteca *Tastevin*, knocked, and went in. 
 <br/><br/><br/>
 
-"Monsieur Daniel Lorenzi. From Paris. I'd bet..." Giulio left the question open, because the man could only be him, there were letters and phone calls to confirm the date and time of his arrival.
+"Monsieur Daniel Lorenzi. From Paris, I'd bet..." Giulio left the question open, because the man could only be him, there were letters and phone calls to confirm the date and time of his arrival.
 
 Giulio went to meet him, extending his arm and patting his back in a friendly way.
 
@@ -401,9 +401,9 @@ Maria laughed, exposing the enamel of her small teeth.
 
 Maria looked him in the eye, and asked, "Are you drinking mineral water?"
 
-Daniel shook his head, and responded "No, it's a gin and tonic, light..."
+Daniel shook his head, and responded, "No, it's a gin and tonic, light..."
 
-"Same for me" said Maria to the waiter, then turned toward Daniel and asked "The hard liquors don't ruin your palate?"
+"Same for me," said Maria to the waiter, then turned toward Daniel and asked, "The hard liquors don't ruin your palate?"
 
 Daniel laughed, "80 percent of the time I taste with my nose. With this potato, see? And then I taste for my work, and drink for pleasure, to remember, to forget, for nostalgia. Who knows... there are many reasons for drinking, right?"
 <!-- Page 21 -->
@@ -422,7 +422,7 @@ Daniel looked at Maria. He'd never had a story, much less a story with an Asian.
 
 "What does you father do?" Daniel asked with a bit of weariness, looking in his pocket for a second Gauloise.
 
-"He's the wine director at the Imperial Hotel. For him it's important to find new wines for the management and customers. There's a lot of competition..."
+"He's the wine director at the Imperial Hotel. For him, it's important to find new wines for the management and customers. There's a lot of competition..."
 
 "And your father sends you, Maria?" Daniel asked, biting the Gauloise that he had just lit.
 

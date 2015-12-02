@@ -12,7 +12,7 @@ Daniel smiled at her and sniffed the sleeves of his shirt and jacket. He rubbed 
 
 So it was expressed by Baravalle and Amalia had accepted. "You have no responsibility," she had said to Daniel, "I have an opportunity, I entrust it to you. It's the only one we have. One card, come what may."
 
-Daniel would have preferred that Amalia take her share of the responsibility and [felt bitter about temperaments that couldn't make concessions](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#amareggio).
+Daniel would have preferred that Amalia take her share of the responsibility, and [felt bitter about temperaments that couldn't make concessions](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#amareggio).
 
 "There is responsibility and I feel it," he had responded to Amalia, "you didn't remove it simply by saying that it isn't there, or that it's yours alone..."
 
@@ -42,7 +42,7 @@ Daniel had laughed: "But yes, there are the labels to talk about. He'll provide 
 
 "Not trusting him is better, however."
 
-Silvio had said the same thing to him, when they were coming down to the reception to wait for Luciano to take them there. "Entrust the labels to some honest man. Baravalle is a bad loser."
+Silvio had said the same thing to him when they were coming down to the reception to wait for Luciano to take them there. "Entrust the labels to some honest man. Baravalle is a bad loser."
 
 Daniel had nodded without stopping to explain that that part would be seen to by Amalia and Giulio, it was their task to take precautions and guarantee it. [He would take only what he had](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#luiciavrebbe). And also: whatever good that Bacchus or whoever would offer him.
 

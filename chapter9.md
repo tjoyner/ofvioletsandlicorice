@@ -1,6 +1,6 @@
 <!-- Page 67-75 -->
 
-Daniel left the Savona after going up to his room to get Flop. He passed by the *Tastevin*, but found it closed. He went in through the courtyard door to Amalia's apartment to find out whether she had heard the harsh news. The chairs in the lounge were overturned, the pictures were off the walls, lying on the ground with the glass broken. Amalia must have been in a terrible rage.
+Daniel left the Savona after going up to his room to get Flop. He passed by the *Tastevin* but found it closed. He went in through the courtyard door to Amalia's apartment to find out whether she had heard the harsh news. The chairs in the lounge were overturned, the pictures were off the walls, lying on the ground with the glass broken. Amalia must have been in a terrible rage.
 
 Daniel righted a few chairs, kicking some shards of glass against the wall, holding Flop who was nervously sniffing the air. 
 
@@ -11,7 +11,7 @@ He decided to walk there, which wouldn't take more than half an hour. He cut acr
 He looked for the gap between the hazelnut trees: Flop found it, and Daniel went up the slope towards the Ginotta farmstead. He was sweating and short of breath. He stopped to calm his breathing near the well. The farmhouse was plunged in darkness, with no light filtering through the windows, but the door was ajar.  Trying not to make noise, Daniel climbed the uneven steps of the entrance, squinting into the kitchen. It was too dark not to stumble into a chair or a cupboard, not to bang against a table. Daniel checked his pocket, he had some matches. He lit one and tried to light up the room. The flame burnt down almost immediately to his fingertips. He cursed under this breath and lit a second. Moving towards the center of the room, he saw her. 
 <!-- Page 68 -->
 
-Amalia was curled up on beat-up sofa, and seemed to be asleep. Daniel approached her, she was dressed as when he'd left her, her hair disheveled and her face drawn. He took a tablecloth from the table, [scattering a cloud of dust that tinted the space around them gray](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#scattering), and spread it gently on her body, which reacted with a short tremor and with what sounded like a sob.
+Amalia was curled up on a beat-up sofa and seemed to be asleep. Daniel approached her, she was dressed as when he'd left her, her hair disheveled and her face drawn. He took a tablecloth from the table, [scattering a cloud of dust that tinted the space around them gray](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#scattering), and spread it gently on her body, which reacted with a short tremor and with what sounded like a sob.
 
 Daniel held his breath in fear of waking her up, but Amalia's body didn't make any other movements, nor was there any sound from her mouth except a restless and contorted breath. He backed up towards the stairs, where Flop stood, and wondered if he should go back to the hotel or if would be better to remain there, waiting for her to wake up. He sat on the steps, leaned back against the staircase wall, and drew Flop against his stomach. There weren't many hours until dawn, and then it would be sunrise. He wished it weren't so soon. 
 <br/> <br/> <br/> 
@@ -45,7 +45,7 @@ Daniel turned his back to the farm, called Flop, and went down the slope to the 
 <br/> <br/> <br/>
 <!-- Page 70 -->
 
-He returned to the hotel. Silvio wasn't behind the counter, so he took the key and went up to his room. He sat on the bed, with Flop at his feet, and wondered what he should do. It was only two days until Nicole arrived. Should he stop her, or pack his bags and from Nice take her to visit Provence? He could rent a car and stay out for a week, then go up to Paris or back to Nice. The thought of being in the company of his daughter, traveling without anyone else present, disturbed him. He couldn't cancel the meeting with Nicole, [he wouldn't be forgiven for it, and they'd never excuse him](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#hewouldntbeforgiven). He took his suitcase from the closet and began to pack, but halfway through we was overcome with fatigue in the neck and shoulders. He lay down on the bed and forced himself to sleep.
+He returned to the hotel. Silvio wasn't behind the counter, so he took the key and went up to his room. He sat on the bed, with Flop at his feet, and wondered what he should do. It was only two days until Nicole arrived. Should he stop her, or pack his bags and from Nice take her to visit Provence? He could rent a car and stay out for a week, then go up to Paris or back to Nice. The thought of being in the company of his daughter, traveling without anyone else present, disturbed him. He couldn't cancel the meeting with Nicole, [he wouldn't be forgiven for it, and they'd never excuse him](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#hewouldntbeforgiven). He took his suitcase from the closet and began to pack, but halfway through he was overcome with fatigue in the neck and shoulders. He lay down on the bed and forced himself to sleep.
 <br/> <br/> <br/>
 
 He was awakened by the ringing telephone. It was Silvio, who told him that Amalia was there and that she wanted to talk to him.
@@ -58,7 +58,7 @@ This time it was Daniel who felt awkward: "I'll be down in a minute."
 
 "She says she wants to come up..."
 
-Daniel looked at the room, it was neat enough, and he said she could come up. Then he opened a window and put on his shoes. He opened the door before Amalia knocked. For a moment they remained still, looking at each other. She had changed. She had on a pair of black pants and a white jacket over a violet blouse. She wore a small string of pearls around her neck. Daniel pointed to the only chair in the room. While going to sit down, dodging Flop, who had decided to take refuge in the bathroom, Amalia said "So now you know..."
+Daniel looked at the room, it was neat enough, and he said she could come up. Then he opened a window and put on his shoes. He opened the door before Amalia knocked. For a moment, they remained still, looking at each other. She had changed. She had on a pair of black pants and a white jacket over a violet blouse. She wore a small string of pearls around her neck. Daniel pointed to the only chair in the room. While going to sit down, dodging Flop, who had decided to take refuge in the bathroom, Amalia said, "So now you know..."
 
 <!-- Page 71 -->
 
@@ -84,7 +84,7 @@ He said: "First we'll look for your brother. That's what we need the most from y
 
 He offered her his hand, she took it. Daniel held her close. Then he helped her up and they walked down the hall toward the stairs. Flop didn't follow.
 
-He offered to drive, but she told him that driving would calm her down. He asked her if Giulio had friends, they could start with them. Amalia had already made a round of phone calls to the few that she could count, but none of them had followed the poker game, much less heard from him afterwards.
+He offered to drive, but she told him that driving would calm her down. He asked her if Giulio had friends, they could start with them. Amalia had already made a round of phone calls to the few that she could count, but none of them had followed the poker game, much less heard from him afterward.
 
 "Does he frequent any bars in the area?" he asked.
 
@@ -94,7 +94,7 @@ It was. And maybe it was a reaction to that convincing illusion of living in a t
 
 "Amalia, we're flying blind, there's no point... let me give it a try... you stop in at the *Tastevin*... maybe Giulio will phone there... maybe someone will stop by to tell you something."
 
-Amalia reluctantly reversed gear, and turned towards the cathedral.
+Amalia reluctantly reversed gear and turned towards the cathedral.
 
 "What will you do?"
 
@@ -102,7 +102,7 @@ Amalia reluctantly reversed gear, and turned towards the cathedral.
 
 <!-- Page 73 -->
 
-He left her in front of the *Caffe Callisano* and went in to look for a telephone. He called Luciano and asked him if he were available, if he could come and get him. He waited for him, drinking a fresh orange and lemon juice. Luciano was aware of the poker game at the *Savona* the previous night and Giulio's subsequent disappearance. And when Daniel got into the car, he said "Do you have any idea where to look for him? I imagine not. Should I try?" 
+He left her in front of the *Caffe Callisano* and went in to look for a telephone. He called Luciano and asked him if he were available, if he could come and get him. He waited for him, drinking a fresh orange and lemon juice. Luciano was aware of the poker game at the *Savona* the previous night and Giulio's subsequent disappearance. And when Daniel got into the car, he said, "Do you have any idea where to look for him? I imagine not. Should I try?" 
 
 Daniel nodded. Luciano shook his head.
 
@@ -128,7 +128,7 @@ The bar had large, empty tables and high shelving on the walls. The wines were c
 
 He returned with some slices of local salami, sausage from Bra, ham from Langhe, a bowl of sliced olives, pieces of aged Castelmagno cheese, and goat cheese from Val Varaita.
 
-"They'll bring us wine. Also the the list of importers."
+"They'll bring us wine. Also the list of importers."
 
 Daniel realized he was hungry. He hadn't eaten since the previous evening. He took a piece of sausage and squashed it onto some bread. 
 

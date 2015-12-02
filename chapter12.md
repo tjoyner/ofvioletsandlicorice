@@ -1,18 +1,18 @@
 <!-- Pages 96-106 -->
 They had passed the Tenda tunnel, precariously just missing some trucks speeding in the narrow and dark tunnel, and emerged into the scattered blue light of the Mediterranean which bounced among the pines clinging to the alpine gorges. And now they descended towards La Brigue, where Eta Beta asked to stop. Daniel had timidly protested, but Eta Beta had calmed him, saying that they had plenty of time, that it was useless to shut themselves in an airport where you couldn't smoke and where the shops full of summer clothes [would make them even colder](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#wouldmakethem). 
 
-Eta Beta not only peed but wanted to have a coffee, and then, praising the Brigasca sheep, similar to but smaller than the Frabosana, bought some [toma, sora and brus](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus). Floriana begged him to wrap the brus well in foil and when he came out from Alimentari market, she opened the trunk, where Eta Beta stowed them with care.
+Eta Beta not only peed but wanted to have a coffee, and then, praising the Brigasca sheep, similar to but smaller than the Frabosana, bought some [toma, sora, and brus](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus). Floriana begged him to wrap the brus well in foil and when he came out from Alimentari market, she opened the trunk, where Eta Beta stowed them with care.
 
 "One can tell where these come from: by their odors, by their shape, their recognizable flavors, they have a name. On the other hand, Giacomo didn't know where Francesca came from: she was a girl, a woman, who knew all the places on the Riviera coast, she could belong to Laugueglia as well as to Riva, to Diano as well as to Bordighera."
 
 "Didn't she speak about the town with the port?" Floriana asked.
 
-"Yes, this was the impression that came out of the rare speeches that Francesca made about her residence," answered Eta Beta, stretching out in the seat and wrapping himself more and more in his blue coat. "A small city with a port, yes. She told Giacomo that during her lunch break she was going to do her last sunbathing on the beach or walking on the pier. In my imagination I always pictured a place like Camogli, a fishing village, perched above the sea, leaning over its small port, with its narrow alleys that intertwine like veins in a body, its sunny bends and shaded paths. Or more cheerfully, perhaps Riviera di Ponente. And then she spoke of a train station, which Camogli doesn't have. Once she wrote to him: 'The almond tree by the station already has leaves' and he thought that perhaps he could arrive by train, step onto the platform, and kiss Francesca, who would be waiting for him under the flowering almond tree. Here, he imagined her in a rocky village, a rose of stone, as Roth would have said &ndash; Joseph, not Philip. Two roses, actually, because she had her thorns, a strong character, stubborn, defensive, ready to attack if it seemed she had received a snub."
+"Yes, this was the impression that came out of the rare speeches that Francesca made about her residence," answered Eta Beta, stretching out in the seat and wrapping himself more and more in his blue coat. "A small city with a port, yes. She told Giacomo that during her lunch break she was going to do her last sunbathing on the beach or walking on the pier. In my imagination, I always pictured a place like Camogli, a fishing village, perched above the sea, leaning over its small port, with its narrow alleys that intertwine like veins in a body, its sunny bends, and shaded paths. Or more cheerfully, perhaps Riviera di Ponente. And then she spoke of a train station, which Camogli doesn't have. Once she wrote to him: 'The almond tree by the station already has leaves' and he thought that perhaps he could arrive by train, step onto the platform, and kiss Francesca, who would be waiting for him under the flowering almond tree. Here, he imagined her in a rocky village, a rose of stone, as Roth would have said &ndash; Joseph, not Philip. Two roses, actually, because she had her thorns, a strong character, stubborn, defensive, ready to attack if it seemed she had received a snub."
 <!-- Page 97 -->
 
 "If Giacomo never met her where she lived, where did he meet her then?" asked Daniel, more out of courtesy than interest: stories of love gone wrong all seemed the same and boring, his own included.
 
-"In Menton, in Sanremo, in Cervo, wherever his job would take him. One time they went down to the beach at Balzi Rossi. He understood from some of her hints that they were places she had gone to as a girl, especially the beach at Darsenone, the one with the fisherman's huts. Indeed, in time he thought he understood that, along with Giacomo, she was regressing into the past, to when she was eighteen, nineteen years old, to summertime, that time of light clothing, of sun that lasts long on the skin, of bathing in the moonlight, of intoxicating songs that seem to freeze time.
+"In Menton, in Sanremo, in Cervo, wherever his job would take him. One time they went down to the beach at Balzi Rossi. He understood from some of her hints that they were places she'd gone to as a girl, especially the beach at Darsenone, the one with the fisherman's huts. Indeed, in time he thought he understood that, along with Giacomo, she was regressing into the past, to when she was eighteen, nineteen years old, to summertime, that time of light clothing, of sun that lasts long on the skin, of bathing in the moonlight, of intoxicating songs that seem to freeze time.
 <br/> <br/> <br/>
 <!-- Page 98 -->
 
@@ -39,7 +39,7 @@ They had emerged in Ventimiglia, Floriana took the ramp for the autostrada to Fr
 
 Daniel said, "In half an hour we'll be there. I hope everything goes smoothly."
 
-Floriano reached for his hand. She said "Everything will go fine Daniel... [we are many](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#siamointanti)."
+Floriano reached for his hand. She said, "Everything will go fine Daniel... [we are many](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#siamointanti)."
 
 "We are a surprise..." added Eta Beta.
 
@@ -57,9 +57,9 @@ Daniel turned, he remained uncertain for a moment, then he embraced his daughter
 
 Daniel looked at Eta Beta, shrugging his shoulders as if wanting to say he was not quite sure if he knew him, and at the same time he grabbed the young man dressed in white saying, loudly: "He's here, it's Giulio!"
 
-For different reasons, Floriana, Nicole and Giulio were surprised by the vehemence of Daniel's statement, spoken with such force. The only one who didn't seem surprised was Eta Beta who, prudently, went behind Giulio, almost wanting to prevent a possible escape.
+For different reasons, Floriana, Nicole, and Giulio were surprised by the vehemence of Daniel's statement, spoken with such force. The only one who didn't seem surprised was Eta Beta who, prudently, went behind Giulio, almost wanting to prevent a possible escape.
 
-Giulio, after a first instant of surprise and embarrassment, looked at Nicole and tried to smile at her. 
+Giulio, after an instant of surprise and embarrassment, looked at Nicole and tried to smile at her. 
 
 "You're in Nice also...?" he mumbled.
 
@@ -90,7 +90,7 @@ Daniel looked at him angrily, he wanted to remind him that something else had to
 
 "I'd like to drive," Nicole interjected. "Can I?"
 
-Daniel looked at Eta Beta. Eta Beta nodded, and said "Daniel, go with your daughter. She doesn't know how to drive. Perhaps, with respect to cars, we're not the best crew, [but that's from a sentimental point of view](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dalpuntodivista). We'll follow you, just in case. Okay?"
+Daniel looked at Eta Beta. Eta Beta nodded and said, "Daniel, go with your daughter. She doesn't know how to drive. Perhaps, with respect to cars, we're not the best crew, [but that's from a sentimental point of view](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dalpuntodivista). We'll follow you, just in case. Okay?"
 
 "But who is that?" Nicole asked, amused.
 
@@ -109,7 +109,7 @@ Nicole and Daniel set out slowly, Floriana missed the exit from the airport a fe
 
 "What relationship isn't?" Floriana answered.
 
-Eta Beta ignored the question, and leaned between the two passengers: "Look, Daniel's asking if she can drive a manual transmission, see, he's showing here the stick shift. [From this distance](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dalontano), he'd like to tell her that he's glad she came, [that he had lost hope](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chenoncisperava). He'd like to ask her how she is, but he's afraid asking such a direct question would irritate her. He points to the landscape, tells her about it so she's not distracted."
+Eta Beta ignored the question and leaned between the two passengers: "Look, Daniel's asking if she can drive a manual transmission, see, he's showing here the stick shift. [From this distance](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dalontano), he'd like to tell her that he's glad she came, [that he had lost hope](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chenoncisperava). He'd like to ask her how she is, but he's afraid asking such a direct question would irritate her. He points to the landscape, tells her about it so she's not distracted."
 
 They entered the tunnel, and when they emerged they were above Monte Carlo. Floriana slowed down, moving the car towards the guardrail, while Daniel was pointing towards the high-rises of the Principality. 
 
@@ -169,12 +169,12 @@ They had left Ventimiglia and had taken the road to Roja. They stopped under a c
 
 "They're stopping to get gas," advised Eta Beta, who had seemed to have fallen asleep. 
 
-The two cars stopped in the self-service area of Q8 gas, and Giulio got out to tell Nicole that it was a diesel, and offered to get the diesel fuel. Daniel let him do it while continuing to look at him with severity and detachment, so much so that Floriana made a sign to Eta Beta:
+The two cars stopped in the self-service area of Q8 gas, and Giulio got out to tell Nicole that it was a diesel and offered to get the diesel fuel. Daniel let him do it while continuing to look at him with severity and detachment, so much so that Floriana made a sign to Eta Beta:
 
 "Jealous just like all fathers when a young male approaches their daughter. So was my father, and he had no reason..." Floriana had turned toward Eta Beta. 
 <!-- Page 105 -->
 
-"Perhaps in this case also, Daniel shouldn't have to worry about about it," Eta Beta said.
+"Perhaps in this case also, Daniel shouldn't have to worry about it," Eta Beta said.
 
 Floriana looked at him, looked at Nicole near Giulio, then turned back toward Eta Beta with a light irony in her eyes, and let out a burst of brief, cheerful, laughter. She said, "It was a thought that had crossed my mind, but hadn't taken into consideration... I was biased."
 
@@ -186,7 +186,7 @@ They had passed Libre, Trucco, Saorge, and the bridge of Briga, and climbed into
 
 "Nicole has asked Daniel something, look..." said Giulio, attracting the attention of Floriana and Eta Beta, "he's touched her arm... the calm after the storm. Right?"
 
-"Sometimes," said Eta Beta, getting up and leaning towards the front seat, "you feel at home, and there things are forgiven, or else are buried under embers that never go out, as long as the fire isn't quenched or there's a split between the litigants. In the first case it's possible for the relationships to return to normal, in the second it depends on the private lives of the individual combatants and on their vanity, on the narcissistic time that they've devoted to themselves."
+"Sometimes," said Eta Beta, getting up and leaning towards the front seat, "you feel at home, and there things are forgiven, or else are buried under embers that never go out, as long as the fire isn't quenched or there's a split between the litigants. In the first case, it's possible for the relationships to return to normal, in the second, it depends on the private lives of the individual combatants and on their vanity, on the narcissistic time that they've devoted to themselves."
 
 "Now it's he who's again putting a hand on the back of her neck," said Giulio, who didn't seem to have heard the words of Eta Beta. 
 

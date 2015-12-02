@@ -1,7 +1,7 @@
 <!-- Pages 94-95 -->
 This time it was Floriana who interrupted Eta Beta's story, who, approaching the first turns after Limone and preparing to head to the Calle di Tenda, asked Eta Beta: "Ok, but where was Francesca?"
 
-There was a moment of silence, then Eta Beta, almost moaning, said "I never knew. But I'd like to get there by degrees, I'd like Giacomo to get there by degrees, to tell how he never knew where Francesca lived. Perhaps he had an idea, but he was never certain."
+There was a moment of silence, then Eta Beta, almost moaning, said, "I never knew. But I'd like to get there by degrees, I'd like Giacomo to get there by degrees, to tell how he never knew where Francesca lived. Perhaps he had an idea, but he was never certain."
 
 Then he resumed the story, with the same tone, gentle and monotonous, of a few moments before.
 <br/><br/><br/>

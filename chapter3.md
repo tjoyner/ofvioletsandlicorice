@@ -4,7 +4,7 @@
 
 Daniel sat down in front of Giulio.
 
-"Amalia doesn't want to hear anything about returning to Ginotta, might as well sell it. But woe to anyone who make an offer. She's made it a cemetary."
+"Amalia doesn't want to hear anything about returning to Ginotta, might as well sell it. But woe to anyone who make an offer. She's made it a cemetery."
 
 Giulio said the sentence in one breath as if it were still the night before and they were still within the walls of the *Tastevin*.
 
@@ -24,13 +24,13 @@ Beyond the hazelnuts, which Daniel recognized, they crossed the vineyard, now re
 
 <!-- Page 37 -->
 
-"Tell me Daniel, if you could let a farm go like that..."
+"Tell me, Daniel, if you could let a farm go like that..."
 
 "[You've also played a part...](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#youalso)"
 
 Giulio was sitting on a wooden bench, Flop, sniffing the ground, ran back and forth, slipping on hazelnuts, and returned to the yard wagging his tail around Daniel's legs.
 
-"Do you think I haven't tried? My sister's head is harder than a rock. We fought for years, until I decided to let it go. She's my sister, she raised me, she's my family."
+"Do you think I haven't tried? My sister's head is harder than a rock. We fought for years until I decided to let it go. She's my sister, she raised me, she's my family."
 
 Daniel didn't know what to add. He remained silent in the fresh Alpine air that knew the snow of Bisalta and Monviso. A shutter suddenly slammed and Daniel stood to look at it: framed in the first floor window, facing him, was Amalia, with tousled hair, in a blue robe with small white flowers.
 
@@ -46,7 +46,7 @@ Daniel walked into a large kitchen that was a mixture of smells: flowering potat
 
 <!-- Page 38 -->
 
-Suddenly Daniel felt the scent of coffee wafting from a gas stove, and the gurgling of the liquid seeping into the Neopolitan roast.
+Suddenly Daniel felt the scent of coffee wafting from a gas stove and the gurgling of the liquid seeping into the Neopolitan roast.
 
 Amalia came into the kitchen while Daniel turned off the gas. 
 
@@ -54,7 +54,7 @@ Amalia came into the kitchen while Daniel turned off the gas.
 
 "[If you don't also find them stuck in an arm or a foot, count yourself lucky](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ifyoudont)..." Giulio said bitterly.
 
-Amalia poured the coffee in silence. Looking at Flop, she said "Maybe we should keep a dog, a guard dog..."
+Amalia poured the coffee in silence. Looking at Flop, she said, "Maybe we should keep a dog, a guard dog..."
 
 "[If no one poisons it for you after a few days](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ifnoonecomes)".
 
@@ -62,7 +62,7 @@ Daniel went out to the yard with a cup of coffee and walked toward what was left
 
 Daniel straightened up a post at the beginning of what had been a row, stripped it of brush, slowly, so as not to damage the new shoots &ndash; the stem was old but still productive &ndash; kicked dry clods with the tip of his shoe, the turned earth was loaded with humus.
 
-He heard a light step behind him, and realized it was Amalia. Without turning, he said, "Nature always recovers, it bears humiliation and indifference, but continues to express what it is."
+He heard a light step behind him and realized it was Amalia. Without turning, he said, "Nature always recovers, it bears humiliation and indifference, but continues to express what it is."
 
 "I didn't want to humiliate it," said Amalia with a harsh tone. "I didn't want anything from it, only this. I had already taken everything."
 
@@ -89,7 +89,7 @@ Daniel continued, followed by Flop, towards the hazelnuts. When he reached the c
 Daniel shrugged. Then, hitting Flop with the back of his hand, he said, "Tonight we're sleeping in the hotel again..."
 <br/><br/><br/>
 
-At the *Savona*, Daniel had gotten a phone call from Marc. He called him back. Marc told him that Nicole was better, and that perhaps he'd managed to convince her to join him in Piedmont.
+At the *Savona*, Daniel had gotten a phone call from Marc. He called him back. Marc told him that Nicole was better and that perhaps he'd managed to convince her to join him in Piedmont.
 
 "When?" asked Daniel. "I'm booked until Sunday. Today is Wednesday."
 
@@ -105,14 +105,14 @@ At the *Savona*, Daniel had gotten a phone call from Marc. He called him back. M
 
 The thought of Nicole coming to Alba troubled him. Nicole demanded constant and discreet attention. Daniel feared her sudden rages, the possibility of her escape. Could he possibly keep her with him for several days? 
 
-It would be nice to have a short vacation with his daughter, it hadn't happened for years, since he and Laurencine were still a family. If Amalia had a different character, perhaps he could talk to her about his problem. Or maybe he could talk to her just because she had that character. She had talked to him about certain delicate things because it was easier to tell them to a stranger.
+It would be nice to have a short vacation with his daughter, it hadn't happened for years, not since he and Laurencine were still a family. If Amalia had a different character, perhaps he could talk to her about his problem. Or maybe he could talk to her just because she had that character. She had talked to him about certain delicate things because it was easier to tell them to a stranger.
 
 He looked at Flop, who was crouched near the door. He wondered what he would do with Flop if Nicole came. There were too many uncertainties in his thoughts. He lay down on the bed, he needed to rest before going to breakfast.
 
-When he came out on Via Roma he smelled an intense aroma of cocoa and vanilla that seemed to scrape his throat, so he turned towards Via Toti, as always followed by Flop. He was looking for a restaurant and was lost among the narrow streets, the low houses with balconies covered with geraniums, antique shops and hardware stores, crowded wine shops and bakeries displaying special breads of all shapes baked in wood-burning ovens. He thought he saw Amalia coming out of a shop. She wore a white dress tied at the waist by a wide blue belt. He stopped in front of the entrance, it was a hairdresser. He read the name, Egoist, smiled and ducked towards a piazza with medieval towers and tall bell towers. He saw a sign *Tavern of the Poets*: with that title, Daniel thought, they wouldn't stop dogs from entering.  He went in. The atmosphere was pleasant, with its small tables and and shelves of wine on the walls, it had the appearance of a bistro. He sat and looked at the short list of daily specials. He asked for [bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), and a plate of [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of breadstick, coarse and uneven.
+When he came out on Via Roma he smelled an intense aroma of cocoa and vanilla that seemed to scrape his throat, so he turned towards Via Toti, as always followed by Flop. He was looking for a restaurant and was lost among the narrow streets, the low houses with balconies covered with geraniums, antique shops and hardware stores, crowded wine shops and bakeries displaying special breads of all shapes baked in wood-burning ovens. He thought he saw Amalia coming out of a shop. She wore a white dress tied at the waist by a wide blue belt. He stopped in front of the entrance, it was a hairdresser. He read the name, Egoist, smiled and ducked towards a piazza with medieval towers and tall bell towers. He saw a sign *Tavern of the Poets*: with that title, Daniel thought, they wouldn't stop dogs from entering.  He went in. The atmosphere was pleasant, with its small tables and shelves of wine on the walls, it had the appearance of a bistro. He sat and looked at the short list of daily specials. He asked for [bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), and a plate of [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of a breadstick, coarse and uneven.
 
 <!-- Page 41 -->
-He ate with pleasure: the bread was good,  the olive oil was good, and the wine, a light Dolcetto, seemed respectable. He ended with a cup of cooked fruit and a large coffee. He gave a few more pieces of breadstick to Flop, then asked for a bowl of water. When Flop was finished drinking, he paid and they left.
+He ate with pleasure: the bread was good,  the olive oil was good, and the wine, a light Dolcetto, seemed respectable. He ended with a cup of cooked fruit and a large coffee. He gave a few more pieces of the breadstick to Flop, then asked for a bowl of water. When Flop was finished drinking, he paid and they left.
 
 They turned a little aimlessly, towards the cathedral and town hall. Daniel bought a few postcards, then went down along Via Maestra, through tourists and school groups.
 

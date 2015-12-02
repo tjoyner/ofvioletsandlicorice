@@ -45,7 +45,7 @@ Daniel shook his head. Tell that to those who are trying to make a Barolo or a B
 Maria followed their discussion, but Nicole was bored, touching the arm of her friend to pull her into another conversation. So Daniel paused, turned toward Nicole and asked, "Nicole, have I ever asked you if you like wine?"
 <!-- Page 125 -->
 
-The question came to him without thinking, and after saying it Daniel reflected that it was exactly so, that he'd never asked her if she liked wine, and not because he hadn't had the the time or the occasion, but because he took it for granted, he saw that she drank it in moderation, and to him that was good, better wine than all the rest.
+The question came to him without thinking, and after saying it Daniel reflected that it was exactly so, that he'd never asked her if she liked wine, and not because he hadn't had the time or the occasion, but because he took it for granted, he saw that she drank it in moderation, and to him that was good, better wine than all the rest.
 
 "Do you like it?" he repeated, smiling at her.
 

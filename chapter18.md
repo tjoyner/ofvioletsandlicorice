@@ -11,7 +11,7 @@ She looked at Daniel, she didn't have the look of someone asking for forgiveness
 
 Amalia looked at Daniel. There was boldness in her eyes, [the request must have cost her in misguided pride](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#malinteso). But in their light there were also reflections of the softness and apprehension of a childlike gaze, frightened.
 
-Fearing that Daniel didn't have an answer, she added "I should give up my half of Ginotta to him and not say anything more about it? Is that what I should do?"
+Fearing that Daniel didn't have an answer, she added, "I should give up my half of Ginotta to him and not say anything more about it? Is that what I should do?"
 <!-- Page 132 -->
 
 Daniel shook his head.
@@ -32,7 +32,7 @@ Amalia turned to look at Daniel, and this time he saw that there was a different
 
 Daniel said nothing, looked at her. He knew he was looking at her with a blank, or maybe just tired, expression. He got up from the table, went behind the bar, took a bottle of [Nonino](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#nonino) and poured two fingers in one glass, and two fingers in another. He tossed it down to feel the fire in his throat, he wanted to extinguish the question that he was about to ask: "Amalia, do you know how to play poker?"
 
-He watched her take her glass and drink it in one gulp. Then he heard her voice yelling "No. No I don't know how to play!"
+He watched her take her glass and drink it in one gulp. Then he heard her voice yelling "No. No, I don't know how to play!"
 
 Daniel couldn't tell if she was laughing or crying. He had turned around to go back to sit at the table.
 <div style="text-align: center">

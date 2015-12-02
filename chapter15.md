@@ -14,7 +14,7 @@ Amalia shrugged her shoulders: "If the coward feels like it... if you can get hi
 
 Daniel had asked Maria to let Nicole know what had happened between Giulio and Amalia, and of the card game that had condemned Ginotta, but then he reconsidered, and while she was sitting on the bed with Flop he tried to tell her about the relationship that bound Amalia and Giulio. Nicole was indifferent, and asked him, "Are you interested in Amalia?"
 
-Daniel sat on the bed, and was petting Flop. 
+Daniel had sat down on the bed and was petting Flop. 
 
 "I've asked myself that also. Rather, I've asked myself how much..."
 
@@ -29,9 +29,9 @@ Daniel shifted his hand from Flop's head to Nicole's shoulder.
 Daniel looked at her and she seemed more mature than he'd thought; he thought of how little he'd ever spoken to her, but also the discomfort he felt when talking to her. Or maybe not discomfort but just unease. He didn't have the education, the training, the capacity for it. When he'd separated with Laurencine and was no longer at home, he'd been unable to say anything to her. He'd gone to pick her up at the house to take her to a restaurant and, he remembered, he hadn't mentioned that he would no longer be living with them. He'd thought that the task of explaining the reasons for the split between Laurencine and him belonged to the ex-wife, if she hadn't already understood by herself. It was a mistake, and over the years he'd wanted to correct it, but he wasn't able to. He had a knot inside that prevented it, that came to him from afar, ever since, in his home, as a child, he had learned that we express our feelings with silence or with gestures. That's how it was with his grandparents, that's how it was between his parents. At the slightest hint of discussion his grandfather would slip off into the countryside; if his father sensed a possible conflict with his mother, Daniel saw him take his fishing rod and go out. With Laurencine he used the technique of solitaire; he took the cards and sat at the table combining the numbers and colors. For himself it had worked, or so it had always seemed to him. Between Laurencine and him, no. And also not between Nicole and him. 
 <!-- Page 120 -->
 
-Daniel asked, awkwardly: "Do you like Maria?" and quickly added "You get along, as friends..." 
+Daniel asked, awkwardly: "Do you like Maria?" and quickly added, "You get along, as friends..." 
 
-He wondered why he'd had to specify the feelings between the two girls. What was he afraid of? He shook his head and it reinforced the idea that [silence was the more sympathetic language regarding other people's emotions](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#comprensivo).
+He wondered why he'd had to specify the feelings between the two girls. What was he afraid of? He shook his head and it reinforced the idea that [silence was a more sympathetic language regarding other people's emotions](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#comprensivo).
 
 He said "What do you think of Giulio?" and immediately bit his tongue. 
 
@@ -76,7 +76,7 @@ He turned to Giulio and said, "Force yourself, try not to stay silent the entire
 
 While Giulio disappeared into the hallway, Daniel saw that there wasn't any bread on the table and again leaning out the window, asked, in a loud voice, "Amalia, where can I find the bread?"
 
-He heard his voice echoing clearly in the valley, and the voice of Amalia, very near, reply "Look in the cupboard, near the door. There should also be some fresh breadsticks."
+He heard his voice echoing clearly in the valley, and the voice of Amalia, very near, reply, "Look in the cupboard, near the door. There should also be some fresh breadsticks."
 
 <div style="text-align: center">
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
