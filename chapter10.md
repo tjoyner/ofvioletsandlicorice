@@ -62,7 +62,7 @@ Luciano phoned at a quarter to 10: a complication prevented him from coming to p
 
 Daniel lights his first cigarette of the day, cursing the unexpected difficulty. He couldn't arrive late to Nice. He wouldn't be able to forgive himself. And they wouldn't forgive him.
 
-He sits at a table, looks at the time, and orders an aperitif, a Pastis. He knows it's early and that surely he'll be banging his head, but the agitation that is overtaking him is rising. Within himself he begins to feel that he doesn't know how to resolve his problem. [He hears himself saying: "Make something happen. I beg you: make something happen and find a solution."](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#hehearshimself) He says it clenching his fists, looking at the Pastis that Silvio had brought him, along with a small carafe of ice water. 
+He sits at a table, looks at the time, and orders an aperitif, a Pastis. He knows it's early and that surely [his head will be pounding](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#batteraintesta), but the agitation that is overtaking him is rising. Within himself he begins to feel that he doesn't know how to resolve his problem. [He hears himself saying: "Make something happen. I beg you: make something happen and find a solution."](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#hehearshimself) He says it clenching his fists, looking at the Pastis that Silvio had brought him, along with a small carafe of ice water. 
 
 Then he feels steps behind him and a cold draft, as if it were the air conditioning. He turns around.
 

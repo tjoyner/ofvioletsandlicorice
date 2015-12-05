@@ -20,7 +20,7 @@ Daniel shrugged. He could have responded to him: for a look. Or as he told Nicol
 
 And maybe it was true. Inside that response was also the look and the kiss of Amalia, but it was inside: the look and the kiss of Amalia weren't part of the challenge. Was that so? Daniel didn't want to ask himself that. It would be like trying to solve the mystery of existence, or even, simply, that of the human universe.
 
-He laughed and said, "[We could say that it attracts more pussy than who knows what](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#unpelodifiga). But it's true and it isn't true. Right?"
+He laughed and said, "[We could say that it attracts more snatch than who knows what](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#unpelodifiga). But it's true and it isn't true. Right?"
 
 Luciano was taken aback. He slowed on a curve, then returned his gaze to the rearview mirror, looking for Daniel's eyes.
 
