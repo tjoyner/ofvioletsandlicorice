@@ -7,7 +7,7 @@
 
 Daniel was sitting on a deckchair in the middle of the yard, Flop circled around him, suspicious, offended at having been left there on a chain and, now free, was hopping around looking to be petted, but not by Daniel who had called him several times.
 
-"She'll put it in a frame so that Giulio won't forget," said Daniel getting up from the deckchair. He felt a tingling in his legs, he needed to take a walk. He walked to the vineyard and saw that some rows had been cleared of weeds, many plants had been pulled up, [and the plowed soil was black like a water snake](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#nerecome).
+"She'll put it in a frame so that Giulio won't forget," said Daniel getting up from the deckchair. He felt a tingling in his legs, he needed to take a walk. He walked to the vineyard and saw that some rows had been cleared of weeds, many plants had been pulled up, [and the plowed soil was as black as a water snake](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#nerecome).
 
 "Baravalle had already started to clear it..."
 
