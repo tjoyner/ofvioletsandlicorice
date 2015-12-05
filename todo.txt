@@ -8,7 +8,14 @@ To do when adding a new chapter:
  Point new chapter to previous chapter
  Update end of previous chapter to link to it
  Add tumblr page with tags
-   #wine #slowfood #piedmont #italy #fiction #langhe
+#wine 
+#langhe 
+#piedmont 
+#italy 
+#slowfood 
+#sommelier
+#fiction 
+
  *Update zzz with full link
  *Update notes.html with new references
     Search for ??
