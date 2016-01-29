@@ -31,7 +31,7 @@ Luciano took a swig, then took the small bottle and started towards the hotel ex
 "It's a warm spring," answered Luciano, getting in the car.
 <br/><br/><br/>
 
-She was at the kitchen window drying an espresso cup when she saw a man emerge from the colors of the hazelnut trees. He came crawling on all fours looking at the ground like he'd lost something. Amalia was curious: the man had strong shoulders, a large, golden-brown head, wide hands and a prominent nose. 
+She was at the kitchen window drying an espresso cup when she saw a man emerge from the colors of the hazelnut trees. He came crawling on all fours looking at the ground like he'd lost something. Amalia was curious: the man had broad shoulders, a large, golden-brown head, wide hands and a prominent nose. 
 
 She wondered what he was doing on the ground, there in [Elvio](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#elvio), with his nose in the grass. Was he drunk, maybe, or was he sick? 
 
@@ -283,7 +283,7 @@ She got up, offering a smile as bright as the July moon, and Daniel held his bre
 
 Daniel shrugged his shoulders and looked her in the eye. Amalia shifted her gaze toward the center of the table.
 
-"Ok," she said, "as I wrote, you'll do five nights for us on the Greats of France, and I or my brother will bring wines from local producers that interest you. The first event is scheduled for this evening, remember?"
+"Ok," she said, "as I wrote, you'll do five nights for us on the Great Wines of France, and I or my brother will bring wines from local producers that interest you. The first event is scheduled for this evening, remember?"
 
 "Monsieur Bordeaux... I remember." Daniel nodded and added, "I have a list of producers who I'd like to meet: Gaja, Mascarello, Ratti, Rabezzana, Ceretto... your big names. In France, it goes without saying, they love Barola, Nebbiolo, Barbaresco and now also Barbera..."
 <br/><br/><br/>
