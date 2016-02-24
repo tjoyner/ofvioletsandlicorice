@@ -1,4 +1,4 @@
-Perhaps more than anything else, *Di viole e liquirizia* is Nico Orengo's homage to the wine and cuisine of Piedmont. Here's what Daniel, the sommelier protagonist, eats and drinks in the novel. 
+Perhaps more than anything else, *Di viole e di liquirizia* is Nico Orengo's homage to the wine and cuisine of Piedmont. Here's what Daniel, the sommelier protagonist, eats and drinks in the novel. 
 
 <h2>Chapter 1</h2>
 Large salad (*Daniel ate the salad with pleasure, appreciating the radish and green pepper, tender carrots, salty capers, small black olives, valerian and endive, cucumber and lettuce heart. He discarded the garlic clove, but appreciated its scent, sweet and dry.*)  
@@ -13,7 +13,7 @@ Vanilla gelato (*[He] asked for a vanilla cone, so as not to disappoint the boy 
 Favorita and Freisa (*[He] asked the guests to blindfold themselves with their napkins. He'd have them taste a wine, and then ask if they had drunk a white or a red.*)  
 Ratti Dolcetto (*...a good young Dolcetto in a dirty bottle with cobwebs*)  
 Battaglino Dolcetto (*...a more modest Dolcetto from Battaglino in a clean bottle*)  
-Ceretto Blang&egrave; (*Daniel had put the same wine in two unlabelled bottles*)  
+Ceretto Blang&egrave; (*Daniel had put the same wine in two unlabelled bottles.*)  
 
 Gin and tonic, light (*"The hard liquors don't ruin your palate?" "80% of the time I taste with my nose. With this potato, see?"*)
 
@@ -26,7 +26,7 @@ Sottimano Cott&agrave; Barbaresco
 Castelmagno (*"Speaking of Sottimano, I believe I've made a discovery... ask for a bit of castelmagno cheese, it'll accompany it well."*)  
 Murrazzono toma (*Daniel slowly drank his glass of Barbaresco, picking at pieces of seasoned Murrazzano toma.*)
 
-Barolo (*He was working with a Barolo... he looked at the crowd... he had them"*
+Barolo (*He was working with a Barolo... he looked at the crowd... he had them.)*
 
 82 Ratti Barolo (*"Well structured, velvety, vital."*)
 
@@ -35,7 +35,7 @@ Salami and toma cheese (*"Would it be possible to have both?"*)
 <h2>Chapter 3</h2>
 Coffee at the Savona (*"Memories often need a place where they can be stored. One's head alone isn't enough," Daniel said, pouring half a bag of sugar in his coffee.*)
 
-Coffee at Ginotta (*"Find two more syringes"*)
+Coffee at Ginotta (*"Find two more syringes."*)
 
 Bagna Cauda, etc. (*He asked for bagna cauda, and a plate of vitello tonnato with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of a breadstick, coarse and uneven.*)  
 House red (*a light Dolcetto*)  
@@ -53,7 +53,7 @@ Favorita, plate of olives, salami (*"Looking for a glass of Favorita?" "If there
 Salad (*[He] had eaten a hearty salad at the hotel.*)
 
 <h2>Chapter 8</h2>
-Serafino (*They... toasted with a Serafino, lightly *frizzante*.*)  
+Serafino (*They... toasted with a Serafino, lightly frizzante.*)  
 Vitello Tonnato, etc. (*They ate vitello tonnato and cold peppers with a small bagna cauda, then she wanted to try the tagliolini with meat ragu and rabbit with peppers.*)  
 Chionetti Dolcetto, from Dogliani (*"Dogliani is important. We've been there, they have a beautiful cemetery."*)  
 Goat cheese, fresh toma (*A cheese course arrived, small slivers of goat cheese, triangles of fresh toma.*)  
