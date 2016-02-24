@@ -31,7 +31,7 @@ They were in Bergolo, in the upper Uzzone valley, Luciano told him as they got o
 
 It was a land of geraniums, red, blue, and white: they came down from the small windows of the stone houses, drawing fragrant arabesques on the walls.
 
-"The poor villages of Alta Langhe. Here, the wine hasn't come, [unfortunately, and fortunately, that nature is still theirs, and if they know to keep it that way maybe they'll find a little bit of well-being](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#unfortunately)."
+"The poor villages of Alta Langhe. Here, the wine hasn't come, [unfortunately, and fortunately, nature is still theirs, and if they know to keep it that way maybe they'll find a little bit of well-being](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#unfortunately)."
 
 Daniel shook his head, he said: "Some tourists hike, some get a room in an *agriturismo*, a little bit of nostalgia for home, for old times... it's tough, Luciano. There are corners of the world that return to being unlivable, and you can't do anything, just worry and hunger are possible for them, and so to speak, a bit of life... a bit of further misery. Hunger and worry. [How long can stubbornness or dignity keep countries from going to nothing, and I don't speak of that?](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#howlongcan)."
 
@@ -39,7 +39,7 @@ Daniel shook his head, he said: "Some tourists hike, some get a room in an *agri
 
 "It seems not. Either one tries to become rich or is poor..." said Daniel.
 
-"[Or consumers or the consumed](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#orconsumers)?" asked Luciano. 
+"[Or are consumers or the consumed](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#orconsumers)?" asked Luciano. 
 
 They were seated in white plastic chairs. 
 

@@ -138,7 +138,7 @@ He sat at the table and asked the boy to get him an iced tea.
 
 "So Giulio managed to succumb to Baravalle. That beast, that rascal. But I don't see that's it's over... that property is trouble... I don't see that it's over yet. Baravalle will stir up some shit... half the farm is not enough... who knows why, but I'll feel he'll take a false step."
 
-"During the days he's a veterinarian," Luciano said to Daniel, "he also has a sixth sense..." The two men laughed, while Daniel pursued a thought that was yet unformed, distant. He took the list that Lovera &ndash; that's how Luciano had introduced him &ndash; had put on the table, and gave it a look. There were names and addresses from Merano, Genoa, Rovigo, and Trieste.
+"During the day he's a veterinarian," Luciano said to Daniel, "he also has a sixth sense..." The two men laughed, while Daniel pursued a thought that was yet unformed, distant. He took the list that Lovera &ndash; that's how Luciano had introduced him &ndash; had put on the table, and gave it a look. There were names and addresses from Merano, Genoa, Rovigo, and Trieste.
 
 "Assuming that our hypothesis is correct, Genoa is the closest."
 

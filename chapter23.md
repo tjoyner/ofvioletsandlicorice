@@ -43,7 +43,7 @@ He said: "Today he's given back to you what he had to. It's not late, take it as
 
 Amalia stiffened, then her body slowly began to relax, and a soft smile opened up on her face. She asked: "And what gift can I possibly give you, Daniel?"
 
-Daniel blushed, shrugged his shoulders, and said: "In the meantime, there is my fee for the courses..."
+Daniel blushed, shrugged his shoulders, and said: "For now, there is my fee for the courses..."
 
 Amalia laughed and rose to her feet, holding out her hand: "And then?" she asked mischievously.
 
@@ -95,7 +95,7 @@ Trying to answer her, he said, "You've kissed me only once. Why Amalia, why?"
 
 She looked down, touched the chain with her thumb and index finger.
 
-"I'll tell you why," Daniel continued, "for stubbornness, not feelings. And if there were feelings, it was less than your need to be stubborn. With yourself, with others."
+"I'll tell you why," Daniel continued, "for stubbornness, not feelings. And if there were feelings, they were less than your need to be stubborn. With yourself, with others."
 
 She stopped playing with the chain, reached out her hand, looking for his.
 

@@ -39,14 +39,14 @@ Daniel was waiting in the dining room of the *Savona*. He was at his table. In f
 
 "I ate, curiously, hot things. I drank a little. I'm fine, Daddy."
 
-Daniel looked at her. She was a child. To him, she seemed to still be a child. He had to correct himself. He asked her: "Do you still want to stay here, for a few days?"
+Daniel looked at her. She was a child. To him, she seemed to still be a child. He had to correct himself. He asked, "Do you still want to stay here, for a few days?"
 <!-- Page 135 -->
 
 "Otherwise?" Nicole asked.
 
 "We could go see your grandparents' house in Villefranche. Take a ride in Provence."
 
-For a moment, Nicole had hoped her father would say 'Go with Maria,' but then laughed at the improbability of that desire and answered: "Have you finished, here? It's nice here."
+For a moment, Nicole had hoped her father would say 'Go with Maria,' but then laughed at the improbability of that desire and answered, "Have you finished, here? It's nice."
 
 Daniel looked at the cards and began dealing them on the table. "[Will they tell me that, or do I have to say it myself](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#melodovranno)?"
 

@@ -40,6 +40,8 @@ UPDATE_LIST="126996872554 insidedustjacket.md
              130908308029 chapter22.md
              130908326604 chapter23.md
              129355307919 book.html
+             138299878514 review3.md
+             139874306654 whatheshaving.md
              "
 set -- $UPDATE_LIST 
 while [ ! -z "$1" ]  # while $1 is not empty

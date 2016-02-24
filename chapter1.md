@@ -123,7 +123,7 @@ Then the man returned to looking outside. The morning was blue and the green col
 
 A magpie quickly crossed the road, brushing the hood of the Mercedes.
 
-"If it were a hare I would've gotten it... but they aren't as stupid as cats" said Luciano.
+"If it were a hare I would've gotten it... but they aren't as stupid as cats," said Luciano.
 
 "Poor beasts, all the cars have ruined their hearing," said the stranger.
 
@@ -132,7 +132,7 @@ They started to hear shots in the distance.
 "[Cannons, on Guarene](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#guarene)... here, the weather comes like this: clouds take off from [Monviso or Bisalta](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#monviso) and bring hail. Then it's goodbye to the harvest."
 <!-- Page 8 -->
 
-Luciano slowed the car, they were at the coast. He opened the car window, sticking his head outside, while an intense perfume of linden invaded the inside of the car.
+Luciano slowed the car, [they were on a slope](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#incosta). He opened the car window, sticking his head outside, while an intense perfume of linden invaded the inside of the car.
 
 In front of them, on the left, was a bar. Luciano asked, as the car approached the entrance to the lot, "Do you mind if we stop for a moment? I have to take a leak. You can have a coffee or aperitif, my treat."
 
@@ -308,7 +308,7 @@ The girls had discovered the navel. They laughed, walking or sitting at tables a
 
 Daniel looked at the exposed stomachs and thought about Nicole. It was a freedom that wasn't enough, apparently. The tight tops, the frayed blue jean shorts, the fifty Euros in your pocket, the moped. They weren't goals that gave her enthusiasm or security, she wanted something that neither he nor Laurencine could ever provide: she wanted to dull her senses, that pills and heroin crap. The problem, therefore, was them, the two of them.
 
-For this they had separated, he and Laurencine. Or maybe not, for reasons that had already been built up. Those reasons were the basis of Nicole's confusion. 
+For this they had separated, he and Laurencine. Or maybe not, maybe for reasons that had already been built up. Those reasons were the basis of Nicole's confusion. 
 
 He stopped in front of a gelato shop. He felt a sudden desire for something fresh, for vanilla gelato. He got in line and asked for a vanilla cone, so as not to disappoint the boy behind the counter who had offered him 4 or 5 samples. Those girls were beautiful, with their exposed navels and gelato on their lips. But his Nicole was better than that: tall, brunette, with green eyes and full lips, just like her mother.
 <!-- Page 17 -->

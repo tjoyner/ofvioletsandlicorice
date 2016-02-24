@@ -15,7 +15,7 @@ Amalia had closed many of the interior doors of the house, but that didn't stop 
 
 They came again in the evening, they brought musicians and prostitutes whom they danced with, and then vanished into the house.
 
-Daniel had suggested to Amalia to be patient, to let the euphoria subside, that the exhibition and the revelry would last no more than a week, and then even Baravalle's ego would be deflated. That she had to think about how to regain possession of Ginotta, and for that they wanted good lawyers and mediators.
+Daniel told Amalia to be patient, to let the euphoria subside, that the exhibition and the revelry would last no more than a week, and then even Baravalle's ego would be deflated. That she had to think about how to regain possession of Ginotta, and for that they wanted good lawyers and mediators.
 
 "I can offer a fair price, even more, and am willing to offer him the equivalent of lodgings in Independence piazza, but I'm sure he won't accept."
 
@@ -54,7 +54,7 @@ They had parted at the door of the *Savona* with a kiss on the cheeks. Flop, who
 He responded yes, [that he thought he understood everything](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thathethought).
 <br/> <br/> <br/>
 
-Luciano phoned at a quarter to 10: a complication prevented him from coming to pick him up. He was mortified, his wife had had a heart attack and he had rushed to the hospital. He gave him telephone numbers of a couple of his colleagues. Daniel had tried to call them: one didn't respond, the other was in Casalle Airport waiting for a client from Naples. 
+Luciano phoned at a quarter to 10: a complication had prevented him from coming to pick him up. He was mortified, his wife had had a heart attack and he had rushed to the hospital. He gave him telephone numbers of a couple of his colleagues. Daniel had tried to call them: one didn't respond, the other was in Casalle Airport waiting for a client from Naples. 
 
 <!-- Page 79 -->
 "What do I do?" Daniel asked himself, agitated.
@@ -78,7 +78,7 @@ The stranger sits, stretching out and folding his hands on the table.
 
 Daniel, confused, nods.
 
-"A convenient solution, and a little too easy, don't you think?"
+"A convenient solution, but a little too easy, don't you think?"
 
 The stranger asks Silvio if it would be possible to get some tea.
 
@@ -209,7 +209,7 @@ The first stop was a half disappointment. On the threshold of summer, Arione no 
 
 Eta Beta invited them to take a table, but not to carry a [fixed assortment](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#cabaret) of sandwiches to it: it was better to get up and serve yourself, because the mouthwatering goodness of the morsels increased when choosing it from among its neighbors.
 
-Floriana and Daniel, who continued to check his watch, accepted the invitation to the table and ordered drinks only: an iced tea and a tomato juice. Eta Beta ordered a sparking Berlucchi and dived into the miraculous catch. 
+Floriana and Daniel, who continued to check his watch, accepted the invitation to the table and ordered drinks only: an iced tea and a tomato juice. Eta Beta ordered a sparkling Berlucchi and dived into the miraculous catch. 
 
 "Love brings hunger," Floriana suggested.
 

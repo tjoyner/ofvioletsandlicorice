@@ -246,7 +246,7 @@ The voice came to him from behind with a tone that was firm and calm. Daniel tur
 
 "Would you like a slice of salami, or would you prefer a piece of cheese?"
 
-"Is it possible to have both?"
+"Would it be possible to have both?"
 
 Daniel heard her laugh, a restrained laugh from the throat, as he had imagined, a bit youthful, [that answered and satisfied his intuition](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thatanswered).
 <!-- Page 33 --> 
