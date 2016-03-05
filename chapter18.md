@@ -1,7 +1,7 @@
 <!-- Pages 131-132 -->
 "[We won't get anything more from the lawyers](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#avvocati)," said Amalia from behind the bar at the *Tastevin*. Daniel had never realized that she smoked. She had a lit cigarette between her lips and the smoke was entangled in her hair. She was vigorously washing glasses and splashes of water splattered on her bare arms, leaving drops on the skin that the morning light transformed into rosy pearls.
 
-Daniel sat at a table, not far away, with a teapot in front of him. He didn't know why he'd asked for tea, possibly because he didn't want to drink water, and it was too early to ask for a glass of white.
+Daniel sat at a table, not far away, with a teapot in front of him. He didn't know why he'd asked for tea, possibly because he didn't want to drink water and it was too early to ask for a glass of white.
 
 He looked at Amalia, her face was drawn, with fine lines crossing her cheeks and forehead. She must have had a sleepless night. 
 

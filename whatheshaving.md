@@ -20,7 +20,7 @@ Gin and tonic, light &ndash; *"The hard liquors don't ruin your palate?" "80% of
 <h2>Chapter 2</h2>
 Levi grappa &ndash; *It had felt like young acacia thorns, and now his throat burned. Or perhaps it burned simply because he had drunk too much of it.*
 
-Coffee (strong) &ndash; *"I never drink it before tasting wine..."*
+Coffee &ndash; *"I never drink it before tasting wine..."*
 
 Sottimano Cott&agrave; Barbaresco  
 Castelmagno &ndash; *"Speaking of Sottimano, I believe I've made a discovery... ask for a bit of castelmagno cheese, it'll accompany it well."*  
@@ -43,7 +43,7 @@ Cup of fruit and large coffee
 
 <h2>Chapter 5</h2>
 
-Salad and castelmagno cheese  
+Salad and Castelmagno cheese  
 Glass of Roero Nebbiolo &ndash; with Amalia who *had poured a finger of the Roero, as if to take courage.*
 
 <h2>Chapter 6</h2>
@@ -55,7 +55,7 @@ Salad &ndash; *[He] had eaten a hearty salad at the hotel.*
 <h2>Chapter 8</h2>
 Serafino &ndash; *They... toasted with a Serafino, lightly frizzante.*  
 Vitello Tonnato, etc. &ndash; *They ate vitello tonnato and cold peppers with a small bagna cauda, then she wanted to try the tagliolini with meat ragu and rabbit with peppers.*  
-Chionetti Dolcetto, from Dogliani &ndash; *"Dogliani is important. We've been there, they have a beautiful cemetery."*  
+Chionetti Dolcetto &ndash; *"Dogliani is important. We've been there, they have a beautiful cemetery."*  
 Goat cheese, fresh toma &ndash; *A cheese course arrived, small slivers of goat cheese, triangles of fresh toma.*  
 Barolo Chinato and an ice &ndash; *The server arrived with a cart of digestifs. He suggested a Barolo Chinato and an ice.*  
 
@@ -84,7 +84,7 @@ Breadsticks
 2003 Dolcetto di Chionetti &ndash; *"It's made by Quinto and Andrea in Dogliani." "14 percent alcohol for a Dolcetto is a lot, too much"*
 
 <h2>Chapter 18</h2>
-Tea &ndash; *He didn't know why he'd asked for tea, possibly because he didn't want to drink water, and it was too early to ask for a glass of white.*  
+Tea &ndash; *He didn't know why he'd asked for tea, possibly because he didn't want to drink water and it was too early to ask for a glass of white.*  
 Nonino &ndash; *...two fingers... he tossed it down to feel the fire in his throat, he wanted to extinguish the question that he was about to ask.*  
 
 <h2>Chapter 20</h2>
