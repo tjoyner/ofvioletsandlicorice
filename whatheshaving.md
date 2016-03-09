@@ -1,4 +1,4 @@
-Perhaps more than anything else, *Di viole e di liquirizia* is Nico Orengo's homage to the wine and cuisine of Piedmont. Here's what Daniel, the sommelier protagonist, eats and drinks in the novel. 
+Perhaps more than anything else, *Di viole e liquirizia* is Nico Orengo's homage to the wine and cuisine of Piedmont. Here's what Daniel, the sommelier protagonist, eats and drinks in the novel. 
 
 <h2>Chapter 1</h2>
 Large salad &ndash; *Daniel ate the salad with pleasure, appreciating the radish and green pepper, tender carrots, salty capers, small black olives, valerian and endive, cucumber and lettuce heart. He discarded the garlic clove, but appreciated its scent, sweet and dry.*  
@@ -24,20 +24,20 @@ Coffee &ndash; *"I never drink it before tasting wine..."*
 
 Sottimano Cott&agrave; Barbaresco  
 Castelmagno &ndash; *"Speaking of Sottimano, I believe I've made a discovery... ask for a bit of castelmagno cheese, it'll accompany it well."*  
-Murrazzano toma &ndash; *Daniel slowly drank his glass of Barbaresco, picking at pieces of seasoned Murrazzano toma.*
+Murrazzano [toma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus) &ndash; *Daniel slowly drank his glass of Barbaresco, picking at pieces of seasoned Murrazzano [toma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus).*
 
 Barolo &ndash; *He was working with a Barolo... he looked at the crowd... he had them.*
 
 82 Ratti Barolo &ndash; *"Well structured, velvety, vital."*
 
-Salami and toma cheese &ndash; *"Would it be possible to have both?"*
+Salami and [toma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus) cheese &ndash; *"Would it be possible to have both?"*
 
 <h2>Chapter 3</h2>
 Coffee at the Savona &ndash; *"Memories often need a place where they can be stored. One's head alone isn't enough," Daniel said, pouring half a bag of sugar in his coffee.*
 
 Coffee at Ginotta &ndash; *"Find two more syringes."*
 
-Bagna Cauda, etc. &ndash; *He asked for bagna cauda, and a plate of vitello tonnato with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of a breadstick, coarse and uneven.*  
+[Bagna Cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), etc. &ndash; *He asked for [bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), and a plate of [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of a breadstick, coarse and uneven.*  
 House red &ndash; *a light Dolcetto*  
 Cup of fruit and large coffee  
 
@@ -54,10 +54,10 @@ Salad &ndash; *[He] had eaten a hearty salad at the hotel.*
 
 <h2>Chapter 8</h2>
 Serafino &ndash; *They... toasted with a Serafino, lightly frizzante.*  
-Vitello Tonnato, etc. &ndash; *They ate vitello tonnato and cold peppers with a small bagna cauda, then she wanted to try the tagliolini with meat ragu and rabbit with peppers.*  
+[Vitello Tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato), etc. &ndash; *They ate [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) and cold peppers with a small bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), then she wanted to try the tagliolini with meat ragu and rabbit with peppers.*  
 Chionetti Dolcetto &ndash; *"Dogliani is important. We've been there, they have a beautiful cemetery."*  
-Goat cheese, fresh toma &ndash; *A cheese course arrived, small slivers of goat cheese, triangles of fresh toma.*  
-Barolo Chinato and an ice &ndash; *The server arrived with a cart of digestifs. He suggested a Barolo Chinato and an ice.*  
+Goat cheese, fresh [toma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus) &ndash; *A cheese course arrived, small slivers of goat cheese, triangles of fresh [toma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus).*  
+[Barolo Chinato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chinato) and an ice &ndash; *The server arrived with a cart of digestifs. He suggested a [Barolo Chinato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chinato) and an ice.*  
 
 Whiskey &ndash; *Silvio came in with a bottle of whiskey, two glasses, and a cup of ice.*
 
@@ -69,7 +69,7 @@ A "small plate" and a glass of Roero &ndash; *He asked Daniel if he'd also like 
 <h2>Chapter 10</h2>
 Pastis &ndash; *[He] orders an aperitif, a Pastis. He knows it's early and that surely his head will be pounding.*
 
-Sandwiches, etc. &ndash; *It went better at Sillano, where the small sandwiches of butter and anchovies, peppers and artichokes, salami and butter, and insalata russa, had just been made and placed, fresh and fragrant, on the shelves of the counter.*  
+Sandwiches, etc. &ndash; *It went better at Sillano, where the small sandwiches of butter and anchovies, peppers and artichokes, salami and butter, and [insalata russa](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#insalatarussa), had just been made and placed, fresh and fragrant, on the shelves of the counter.*  
 Tomato juice &ndash; but *Eta Beta ordered a sparkling Berlucchi and dived into the miraculous catch.*
 
 <h2>Chapter 13</h2>
@@ -77,7 +77,7 @@ Grignolino &ndash; *But now he felt refreshed, maybe because of the Grignolino t
 Roast beef
 
 <h2>Chapter 15</h2>
-Vitello tonnato, etc. &ndash; *Daniel went around the long table, complimenting the dishes there, the vitello tonnato, the pesce finto, the tomato and onion salad, carne cruda all'Albese, prosciutto and chicken in gelatin.*  
+[Vitello Tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato), etc. &ndash; *Daniel went around the long table, complimenting the dishes there, the [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato), the [pesce finto](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#pescefinto), the tomato and onion salad, [carne cruda all'Albese](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#carnecruda), prosciutto and chicken in gelatin.*  
 Breadsticks
 
 <h2>Chapter 16</h2>
@@ -98,5 +98,5 @@ Tagiatelle, etc. &ndash; *Two tagliatelle, with some Gemma," said Luciano, "list
 1996 Roero Roche d'Ampsej &ndash; *"...by Matteo Correggia, one of the greatest winemakers... of the 20th century"*  
 
 <h2>Chapter 23</h2>
-Insalata Russa, etc. &ndash; *On the tray table there was insalata russa and vitello tonatto, there was salami from Rodini and sausage from Bra, there was a plate of carne cruda of Albese and chopped meat with egg yolk and Dijon mustard, there was a cold roast and peppers with anchovies and garlic, and 2 liter bottles of red wine.*  
+[Insalata Russa](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#insalatarussa), etc. &ndash; *On the tray table there was [insalata russa](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#insalatarussa) and [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato), there was salami from Rodini and sausage from Bra, there was a plate of [carne cruda of Albese](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#carnecruda) and chopped meat with egg yolk and Dijon mustard, there was a cold roast and peppers with anchovies and garlic, and 2 liter bottles of red wine.*  
 Breadsticks

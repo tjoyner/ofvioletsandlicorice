@@ -103,7 +103,7 @@ Maria stopped eating. Daniel continued: "It's not an interesting story. It's a b
 
 Maria let Daniel pour his heart out. Then she said, "We've all gone close to that hell, and most times it was because we didn't accept ourselves, we covered our diversity with simple, common, clothes. Have you ever thought that, Daniel?"
 
-The server arrived with a cart of digestifs. He suggested a Barolo Chinato and an ice. And while Maria said that she would prefer a limoncello, Daniel reflected on her words. What did they mean?
+The server arrived with a cart of digestifs. He suggested a [Barolo Chinato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chinato) and an ice. And while Maria said that she would prefer a limoncello, Daniel reflected on her words. What did they mean?
 
 "You don't know how to accept that? I think that few people are satisfied with themselves, perhaps the dull, and saints and martyrs. But we, mere mortals, are destined to have our lives follow a normal path."
 
