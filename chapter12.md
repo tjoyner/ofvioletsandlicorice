@@ -30,7 +30,7 @@ Eta Beta not only peed but wanted to have a coffee, and then, praising the Briga
 "Then, one day she wrote to him: 'When I see you I want to kiss you non-stop.' And they saw each other, Giacomo and Francesca, and they kissed each other for a long time, in the car, between the boats in dock, then in a dark parking lot. That was the first and last time.
 <!-- Page 99 -->
 
-"Then came the Christmas holidays, Francesca left for the mountains, she went to Val d'Is&egrave;re in France with her children, and from there she began to complain, saying that she was in love and alone. Then one day she wrote to Giacomo, 'Never a serious talk.' What serious talks could Giacom have had with her, except those proving to her his deep feelings? And that was the start of the end of their story. 
+"Then came the Christmas holidays, Francesca left for the mountains, she went to Val d'Is&egrave;re in France with her children, and from there she began to complain, saying that she was in love and alone. Then one day she wrote to Giacomo, 'Never a serious talk.' What serious talks could Giacomo have had with her, except those proving to her his deep feelings? And that was the start of the end of their story. 
 
 "A few days later, she wrote that she was in love and happy and that she would be away from the office for a week."
 <br/><br/><br/>
