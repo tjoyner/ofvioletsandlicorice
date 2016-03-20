@@ -149,13 +149,13 @@ Daniel lit the cigarette, through a light wind that moved the vine leaves. The d
 
 "Here, too...  they tell a lot of stories. I remember one time two of my colleagues were tasting a bottle of Bordeaux. They found all the flavors possible, then one of them said that he tasted iron, and the other said he'd tasted leather. They went on, affirming and denying. It ended there. But a year later it was learned that a key tied to a leather cord was found in the barrel that the bottle came from."
 
-"If it's true: fine noses and fine palates. If it isn't: equally as good..." said Luciano, putting out the cigarette between his fingers and tossing it in between the rows. "Here at Sottimano they make a good Barbaresco."
+"If it's true, fine noses and palates. If it isn't, just as good..." said Luciano, putting out the cigarette between his fingers and tossing it in between the rows. "Here at Sottimano they make a good Barbaresco."
 
 Daniel stood up, followed by the dog, walking, brushing the leaves, leaning on the ground, ripping up some grass, listening with his nose to scents and smells.
 
-"I'd like to sit in a bar...  can we go to Mango?" said Daniel, climbing into the car, followed by the dog. 
+"I'd like to sit in a bar...  can we go up to Mango?" said Daniel, climbing into the car, followed by the dog. 
 
-"[In the bars there's a return to drinking wine, anything but soft
+"[In the bars there's a return to drinking wine, instead of soft
 drinks](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#inthebars). Like they used to..."
 
 Climbing uphill, they crossed hazelnut groves, clean as a billiard cloth. Rectangles of corn, vines low and dense. The entrance to Mango looked like a construction site, with cranes and scaffolding for cleaning the facade, fixing cracks in the old walls.
