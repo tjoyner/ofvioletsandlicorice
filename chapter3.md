@@ -4,9 +4,9 @@
 
 Daniel sat down in front of Giulio.
 
-"Amalia doesn't want to hear anything about returning to Ginotta, might as well sell it. But woe to anyone who make an offer. She's made it a cemetery."
+"Amalia doesn't want to hear anything about returning to Ginotta, might as well sell it. But woe to anyone who makes an offer. She's made it into a cemetery."
 
-Giulio said the sentence in one breath as if it were still the night before and they were still within the walls of the *Tastevin*.
+Giulio said the sentence in one breath, as if it were still the night before and they were still within the walls of the *Tastevin*.
 
 "Memories often need a place where they can be stored. One's head alone isn't enough," Daniel said, pouring half a bag of sugar in his coffee.
 
