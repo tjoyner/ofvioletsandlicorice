@@ -1,11 +1,11 @@
 <!-- Pages 127-130 -->
 "Phoning your mother? What will you tell her?"
 
-Daniel felt ashamed that he'd asked that question. But it was the morning after Amalia had reacted with the vehemence of that bonfire.
+Daniel felt ashamed that he'd asked that question. But it was the morning after Amalia had reacted with the fury of that bonfire.
 
-They'd gone back to the hotel in silence, without comments. Maria had taken Giulio back home and they returned with Flop who hugged the walls of the *Savona* and the stairs, then stopped in front of Nicole's room.
+They'd gone back to the hotel in silence, without comment. Maria had taken Giulio home, and they returned with Flop, who hugged the walls of the *Savona* and the stairs, then stopped in front of Nicole's room.
 
-They'd said good night with a kiss on the forehead, Daniel had called Flop, and Nicole had asked to leave him with her. He had gone to his room and had taken a shower to remove the dampness of the night and the smell of ash. Then, unable to sleep, he had taken cards from his suitcase and began to play his usual solitaire on the table close to the TV, wondering what feelings were hidden in the words that he just couldn't say. 
+They'd said good night with a kiss on the forehead, Daniel had called Flop, and Nicole had asked to leave him with her. He'd gone to his room and taken a shower to remove the dampness of the night and the smell of ash. Then, unable to sleep, he'd taken cards from his suitcase and began to play his usual solitaire on the table close to the TV, wondering what feelings were hidden in the words that he just couldn't say. 
 
 He'd gone on for hours, maybe two, maybe three, until he felt tired, confused by the colors and the suits, the runs, and the faces of the queens and the jacks, and had decided to go to bed.
 
@@ -18,7 +18,7 @@ Daniel sat down in the cretonne armchair, near the window.
 
 He hadn't expected that request.
 
-"To Tokyo, with Maria?" he asked, to buy time. He looked at her, she had a calm demeanor, was smiling. Buying more time, he said, "Start by hearing what your mother has to say... we need her to agree. You know."
+"To Tokyo, with Maria?" he asked, to buy time. He looked at her, she had a calm demeanor, was smiling. Buying more time, he said, "Start by hearing what your mother has to say... we need her to agree. As you know."
 
 He'd taken the easy road and felt ashamed. He'd let her do whatever she wanted and the results had certainly arrived. But it was hard to choose 'no,' once you got off on the wrong foot. He said, "We don't know much about Maria... Japan is far away..."
 
@@ -36,12 +36,12 @@ At the reception desk, in addition to Silvio he saw Luciano, who was drinking hi
 
 Daniel nodded, heading toward the dining room.
 
-Luciano asked: "Can I keep you company?"
+Luciano asked, "Can I keep you company?"
 
 Daniel would have liked to say no, that his daughter was coming downstairs. But then, thinking he'd have to listen to Laurencine's comments about her possible trip to Tokyo, and fearful of having to console Nicole for the expected refusal of her mother, resulting in a promise that he would intervene to persuade her, he looked at Luciano and nodded.
 <!-- Page 129 -->
 
-Daniel went to sit down at his usual table, near the window that overlooked the courtyard, and Luciano came over with his beer, sitting down in front of him.
+Daniel went to sit down at his usual table, near the window overlooking the courtyard, and Luciano came over with his beer, sitting down in front of him.
 
 "I thought it would be better if you knew..." Luciano began, looking around.
 
@@ -49,7 +49,7 @@ Daniel went to sit down at his usual table, near the window that overlooked the 
 
 "Baravalle is trying for the big score. He means to denounce Amalia, pass her off as crazy, and take the other half of Ginotta."
 
-Daniel smiled: "Just a minute. It's not that simple. Amalia isn't crazy, she's just exasperated."
+Daniel smiled. "Just a minute. It's not that simple. Amalia isn't crazy, she's just exasperated."
 
 "He and his friends say she tried to burn them at the table while they were eating."
 
@@ -59,7 +59,7 @@ Daniel smiled: "Just a minute. It's not that simple. Amalia isn't crazy, she's j
 
 "She only burned some old furniture."
 
-"With the head that he has, for now he's trying. He's already made the complaint."
+"With that head of his, for now he's trying. He's already made the complaint."
 
 Daniel got up from the table, nervously. Then he sat down. He didn't know what to say except that everything seemed to be plunging into absurdity.
 
@@ -68,7 +68,7 @@ Nicole arrived to break the silence, pouting, saying: "As usual, at the beginnin
 This time, Daniel laughed. He said, "It would have been better to tell her that Maria was a dancer in a club, for Christ's sake, or a bouncer at a gay disco. Why did you have to tell her she dealt with wine?"
 <!-- Page 130 -->
 
-Nicole relaxed. She'd feared that her father would rush to call her mother back for yet another quarrel. Luciano had stood up, he didn't want to enter into their discussion. He wanted to leave them but without appearing rude. He wanted to say goodbye, ask Daniel if he needed him.
+Nicole relaxed. She'd been afraid that her father would rush to call her mother back for yet another quarrel. Luciano had stood up, not wanting to enter into their discussion. He wanted to leave them, but without appearing rude. He wanted to say goodbye, to ask Daniel if he needed him.
 
 "Who's the gentleman?" Nicole asked.
 
@@ -80,9 +80,9 @@ Daniel looked at her and asked himself, all of a sudden, if the presence of Mari
 
 He decided not to think about it. He wanted to be alone, at least for a while.
 
-"Very well. Take Flop also."
+"Very well. Take Flop too."
 
-Then, turning towards Luciano, he asked, "Can you take her to the *Hotel Cavalieri*?
+Then, turning towards Luciano, he asked, "Can you take her to the *Hotel Cavalieri*?"
 
 <div style="text-align: center">
 <a href="http://ofvioletsandlicorice.tumblr.com/post/129355307919/of-violets-and-licorice-table-of-contents">Table of Contents</a><br/>
