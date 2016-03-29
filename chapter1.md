@@ -6,15 +6,15 @@ Luciano put the red leather suitcase on the counter and asked Silvio to open a b
 
 "A foreigner, French I think..."
 
-"He doesn't have a reservation," said Silvio, glancing at the register.
+"He doesn't have a reservation," Silvio said, glancing at the register.
 
-"I told him to come to you."
+"I advised him to come to you."
 
 Silvio went out from behind the reception counter and opened the door to the bar.   
 
-Luciano followed him into the dark room. He sat down on a stool while Silvio opened the beer cooler.
+Luciano followed him into the shadowed room. He sat down on a stool while Silvio opened the beer cooler.
 
-"Where's he now?"
+"And where is he now?"
 
 Luciano shrugged his shoulders, waiting for Silvio to open the Morettis.
 
@@ -22,37 +22,37 @@ He said, "I left him on the road to Pertinace. I lost sight of him as he walked 
 
 "Who is he?" asked Silvio, cleaning the mahogany counter with a rag.
 
-"I don't know, I picked him up at the train station. He also paid for the return ride, after he asked where the *Savona* was and how to get there."
+"I don't know, I picked him up at the train station. He also paid me for the return ride, after he asked where the *Savona* was and how to get there."
 
 Luciano took a swig, then took the small bottle and started towards the hotel exit. 
 
-"If he doesn't make it, come back and get the suitcase," Silvio shouted, shaking his head.
+"If he doesn't make it, come back and get the suitcase," Silvio shouted after him, shaking his head.
 
-"It's a warm spring," answered Luciano, getting in the car.
+"Warm spring," Luciano responded, getting in the car.
 <br/><br/><br/>
 
-She was at the kitchen window drying an espresso cup when she saw a man emerge from the colors of the hazelnut trees. He came crawling on all fours looking at the ground like he'd lost something. Amalia was curious: the man had broad shoulders, a large, golden-brown head, wide hands and a prominent nose. 
+She was at the kitchen window drying an espresso cup when she saw a man emerge from the colors of the hazelnut trees. He came crawling on all fours, looking at the ground like he'd lost something. Amalia was curious: the man had broad shoulders, a large, golden-brown head, wide hands and a prominent nose. 
 
-She wondered what he was doing on the ground, there in [Elvio](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#elvio), with his nose in the grass. Was he drunk, maybe, or was he sick? 
+She wondered what he was doing on her land, there in [Elvio](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#elvio), with his nose in the grass. Was he drunk, maybe, or was he sick? 
 
 Amalia put the cup and towel on the windowsill, left the kitchen, and went down to the yard. The old house was in such a state of abandon that they'd more than once found non-EU refugees&nbsp;and drug addicts there. 
 
-She left by the small side door, crossed the abandoned vegetable garden, and slipped into the hazelnut grove, but couldn't find any trace of him.
+She left by the small side door, crossed the abandoned vegetable garden, and slipped into the hazelnut grove, but couldn't find any trace of the man.
 <br/><br/><br/>
 
-It was 6 when Silvio saw him arrive.  He came in with an awkward and heavy step, banging his shoulder against the entrance door frame. He was tall and large. He was wearing a hazel colored jacket with baggy blue pants that were stained with dirt up to the knees. Silvio guessed he was the owner of the suitcase that Luciano had brought by and put under the counter. 
+It was 6 when Silvio saw him arrive.  He came in with an awkward and heavy step, banging his shoulder against the entrance door frame. He was tall and large. He was wearing a hazel colored jacket with baggy blue pants that were stained with dirt up to the knees. Silvio guessed he was the owner of the suitcase that Luciano had brought by and left under the counter. 
 
-The stranger hesitated a moment in the shaft of light coming through the entrance, then headed toward the reception desk. He stopped in front of Silvio and pulled  two tufts of grass out of the pockets of his linen jacket, dropping them on the counter.
+The stranger hesitated a moment in the shaft of light coming through the entrance, then headed toward the reception desk. He stopped in front of Silvio and pulled two tufts of grass out of the pockets of his linen jacket, dropping them on the counter.
 
 "This is chamomile," he said, taking a sprig and passing it under his nose, then offering it to Silvio. Silvio, irritated, sniffed and nodded.
 
 "But what's this? I can't figure it out."
 
-He spoke Italian slowly, softly, with an accent from across the Alps. He had a large nose and light blue eyes with a steady gaze. Under his nose, Silvio found a handful of long and narrow leaves. He recognized it before he smelled it. 
+He spoke Italian slowly, softly, with an accent from across the Alps. He had a large nose and light blue eyes with a steady gaze. Silvio found a handful of long and narrow leaves under his nose. He recognized it before he smelled it. 
 
 "*Caretta* grass," he said.
 
-"Is it used in wine? In which wine is it used?" the stranger asked him.  
+"Is it used in wine? In which wine is it used?" the stranger asked him.
 
 Silvio looked at him with an odd curiosity. He took the grass from his hands and rubbed it on his wrist.
 
@@ -70,7 +70,7 @@ Then he added, while fiddling with an inside pocket of his large jacket, "The su
 
 Silvio felt embarrassed, [like he'd let him down](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#mancatodifiducia).
 
-"We don't have many guests; I wanted you to choose the room: whether you prefer on the courtyard, or across from the piazza. It's noisier, but also brighter. How long do you intend to stay?"
+"We don't have many guests. I wanted you to choose the room, whether you prefer on the courtyard, or across from the piazza. It's noisier, but also brighter. How long do you intend to stay?"
 
 The stranger shrugged his shoulders, putting his ID on the counter.
 
@@ -85,17 +85,17 @@ Silvio pointed to the steps to the right of the door to the bar. "Do you prefer 
 
 "The stairs are better for me, I'm overweight. Let's go up..."
 
-Silvio and the stranger went up two flights of stairs and went to the end of the hallway. At the end on the left Silvio opened the door to room 15.
+Silvio and the stranger climbed two flights of stairs and went to the end of the hallway. At the end, on the left, Silvio opened the door to room 15.
 
-"This overlooks the courtyard." He let the stranger cross to the French doors that overlooked the courtyard. Then he opened the door to room 18, saying: "And from here you can see the piazza..."
+"This overlooks the courtyard." He let the stranger cross to the French doors that overlooked the courtyard. Then he opened the door to room 18, saying, "And from here you can see the piazza..."
 
 The stranger reached it, opened the window and looked toward the ground, toward the cafe and the patio, toward the central garden. 
 
-"The view is pleasant, but the other room's quieter. Unfortunately, I'm a light sleeper."
+"The view is nice, but the other room's quieter. Unfortunately, I'm a light sleeper."
 
 "It's your choice," said Silvio, shrugging his shoulders and giving him the key. "Are you eating in the hotel?"
 
-"Eating...already, eating," answered the stranger, deep in thought. "Yes, I think it's a good time for it. Thank you." Then he picked up the bag and returned to 15, shutting the door with his shoulder. 
+"Eating... already, eating," answered the stranger, deep in thought. "Yes, I think it's a good time for it. Thank you." Then he picked up the bag and returned to 15, shutting the door with his shoulder. 
 
 Silvio, curious, hurried down the hallway and went down the stairs, towards the ID card. Who was this guy? 
 <br/><br/><br/>
@@ -103,7 +103,7 @@ Silvio, curious, hurried down the hallway and went down the stairs, towards the 
 
 "You want to buy a vineyard? You can't buy any here. No one is selling. Whoever owns the land holds onto it. The last purchase, it was in the Seventies, went to Fiat in Turin, who bought 17 million hectares. Today it's worth 700, 800. Look around: there are many millionaires. While it lasts..." 
 
-He drove slowly through the hills combed with vineyards. He looked in the rear-view mirror, trying to get him to talk, but the stranger didn't seem to have a mouth, nodding his head while he looked around. Luciano was taking him to the *Savona*. Silvio had called him yesterday evening, saying that the Frenchman had asked for him for the morning; he wanted to take a tour of the hills.
+He drove slowly through the hills combed with vineyards. He looked in the rearview mirror, trying to get him to talk, but the stranger didn't seem to have a mouth, nodding his head while he looked around. Luciano was taking him to the *Savona*. Silvio had called him yesterday evening, saying that the Frenchman had asked for him for the morning; he wanted to take a tour of the hills.
 <!-- Page 7 -->
 
 He continued, "You don't see anyone working, but everything is as it should be. Not a leaf out of place or a cluster with one grape too many. Who works in the evening or night?" said Luciano, by now more to himself than to his taciturn client.
@@ -119,7 +119,7 @@ They passed the *Tre Stelle* and they turned towards Neive. Luciano swerved slig
 "But you also make chocolate, soccer balls, clothes..." said the foreigner.
 <br/><br/><br/>
 
-Then the man returned to looking outside. The morning was blue and the green colors sharp and straight along the hills, which curled down into each other like clouds, without casting shadows, but only bursts of white light, prunes, pears, and cherries. 
+Then the man returned to looking outside. The morning was blue and the green colors were sharp and straight along the hills, which curled down into each other like clouds, without casting shadows, but only bursts of white light, prunes, pears, and cherries. 
 
 A magpie quickly crossed the road, brushing the hood of the Mercedes.
 
@@ -134,7 +134,7 @@ They started to hear shots in the distance.
 
 Luciano slowed the car, [they were on a slope](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#incosta). He opened the car window, sticking his head outside, while an intense perfume of linden invaded the inside of the car.
 
-In front of them, on the left, was a bar. Luciano asked, as the car approached the entrance to the lot, "Do you mind if we stop for a moment? I have to take a leak. You can have a coffee or aperitif, my treat."
+In front of them, on the left, was a bar. Luciano asked, as the car approached the entrance to the lot, "Do you mind if we stop for a moment? I have to [take a leak](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#farneungoccio). You can have coffee or an aperitif, my treat."
 
 Luciano climbed the steps and disappeared inside. The stranger slowly got out of the car and followed him. There was no one at the tables and no one behind the counter. They remained standing and looked at the bottles of wine on the shelf, at the black and white photos on the walls: they were all of vineyards, just like those they'd just gone through, but some were sparser and used wooden stakes, and others, more recent, were thick and supported by cement posts. 
 
@@ -155,25 +155,25 @@ They heard a voice, and footsteps behind the bar. "Would you like something to d
 "Virginio, a beer. The usual Moretti. My client would like to taste your Chardonnay. A small sip would be nice, ok?"
 <!-- Page 9 -->
 
-Without waiting for a response, he continued, "Do you remember, Virginio, the storm two years ago? It seemed to have burst from the sky: hail, water, and lightning on the vineyards on the eve of the harvest. And that poor Attilio, who looked at his vineyard reduced to a swamp and rushed to the church, detached the crucifix, and dragged it through Barbaresco, screaming 'Christ, look! Look what you've done, look!', he had gone out of his mind, poor Attilio."
+Without waiting for a response, he continued, "Do you remember, Virginio, the storm two years ago? It seemed to have burst from the sky. Hail, water, and lightning on the vineyards on the eve of the harvest. And that poor Attilio, who looked at his vineyard reduced to a swamp and then rushed to the church, detached the crucifix, and dragged it through Barbaresco, screaming 'Christ, look! Look what you've done, look!', he had gone out of his mind, poor Attilio."
 
 The innkeeper nodded, filling a glass of white. The foreigner took the glass, looked at it, smelled it, and barely wet his lips. He put the glass back on the table, thanked them, and left. Luciano and the innkeeper looked at each other and shrugged their shoulders.
 
-"Suspicious. Or just a teetotaler who's come to the wrong place..."  said Luciano, paying.
+"Suspicious. Or maybe just a teetotaler who's come to the wrong place..."  said Luciano, paying.
 
 "Go, you're not any better, drinking beer," the innkeeper responded, giving him the change.
 
 Then Luciano went out to the piazza, where the stranger was waiting for him, already sitting in the car.
 
-"Wouldn't it have been better to offer an Arneis, a Favorita, or a Blang&egrave; from this area?" he asked when Luciano resumed driving; then he closed his eyes as if he wished to sleep or to wander in his own thoughts.
+"Wouldn't it have been better to offer an Arneis, a Favorita, or a Blang&egrave; from this area?" he asked when Luciano resumed driving. Then he closed his eyes, as if he wished to sleep or to wander in his own thoughts.
 <br/><br/><br/>
 
-The room was simply furnished, with no wallpaper, painted a lemon tint, with a double bed, a wardrobe made of light wood, and a walnut desk that housed a small TV with a minibar on its side. There was a warmth from the overhead light and lamps. The bathroom, with white and black mosaic tiles, was large with a bath and shower and two large rectangular sinks. There was no shortage of bars of soap, lavender bubble bath, and shampoo. 
+The room was simply furnished, with no wallpaper, painted a lemon tint, with a double bed, a wardrobe made of light wood, and a walnut desk that housed a small TV with a minibar on the side. There was a warmth from the overhead light and lamps. The bathroom, with white and black mosaic tiles, was large with a bath and shower and two large rectangular sinks. There was no shortage of bars of soap, lavender bubble bath, and shampoo. 
 
-Upon entering he was greeted by Silvio with a "welcome back, Monsieur Lorenzi," which took him by surprise, because neither in the morning, when he'd left with the driver, nor during the previous evening's dinner, had he given his surname. He smiled, thinking he'd been promoted to a "guest."
+Upon entering he'd been greeted by Silvio with a "Welcome back, Monsieur Lorenzi," which had taken him by surprise, because neither in the morning, when he'd left with the driver, nor during the previous evening's dinner, had he given his surname. He smiled, thinking he'd been promoted to a "guest."
 
 <!-- Page 10 -->
-He returned the smile, asked for the key, and said he was going up to the room to make a phone call. Then he'd have breakfast.
+He had returned the smile, asked for the key, and said he was going up to the room to make a phone call. Then he'd have breakfast.
 
 He'd tried to call his daughter the night before, without finding her. Nicole wasn't there. His ex-wife Laurencine had answered, which, instead of calming him, had made him more restless. Nicole had gone out in the afternoon and hadn't returned for dinner.
 
@@ -195,7 +195,7 @@ Helene replied that she would put him through to the doctor.
 
 "Did you talk to Laurencine?"
 
-"Yesterday... she also didn't know where she was... and now she's not answering."
+"Yesterday... she didn't know where she was either... and now she's not answering."
 
 There was a silent pause, then Marc said: "Daniel, this isn't the first time. I'm worried, but not too much. [At this point there's no way to track her. I promised you that we'll succeed](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alpunto). [Rest easy](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#resteasy). I'm thinking of her."
 
@@ -229,7 +229,7 @@ This was why he'd been called there, to the land of the great reds, of the many 
 Daniel ate the salad with pleasure, appreciating the radish and green pepper, tender carrots, salty capers, small black olives, valerian and endive, cucumber and lettuce heart. He discarded the garlic clove, but appreciated its scent, sweet and dry. He drank half a bottle of fortified mineral water and rose from the table satisfied. He waved as he walked through the tables, took his key from the box behind the counter, and climbed the stairs to his room. He decided to sleep a couple of hours before going to his appointment.
 <br/><br/><br/>
 
-Amalia recognized him as soon as he entered the *Tastevin*. He was the clumsy man she'd seen emerge from beneath the hazel trees of Ginotta. She felt an immediate tenderness towards the large figure, awkward, blue-eyed with stiff, reddish hair matted on his broad forehead. He wore a carrot-colored linen jacket, very large, a pair of blue denim jeans, and a pomegranate-red collarless shirt with clear mother of pearl buttons, like those from Provence.
+Amalia recognized him as soon as he entered the *Tastevin*. He was the clumsy man she'd seen emerge from beneath the hazel trees of Ginotta. She felt an immediate tenderness towards the large figure, awkward, blue-eyed, with stiff, reddish hair matted on his broad forehead. He wore a carrot-colored linen jacket, very large, a pair of blue denim jeans, and a pomegranate-red collarless shirt with clear mother of pearl buttons, like those from Provence.
 
 "Giulio," she said to her brother, "the sommelier from Paris is here. You go, I'll be there soon."
 
@@ -238,17 +238,17 @@ The wine bar was empty, it was a couple of hours before opening; in the shadows 
 Daniel had crossed the middle of Via Maestra, as Silvio had told him, looking at the men's and women's fashion stores, the jewelers, the delicatessens, and the many windows exhibiting magnum bottle trophies of Barolo and Nebbiolo, of Moscato and [Chinato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chinato) wines lying between nougat bars, bags of cornmeal biscuits and jars of floating dried mushrooms with silhouetted cartoons of black and white truffles. Then he found the sign of the enoteca *Tastevin*, knocked, and went in. 
 <br/><br/><br/>
 
-"Monsieur Daniel Lorenzi. From Paris, I'd bet..." Giulio left the question open, because the man could only be him, there were letters and phone calls to confirm the date and time of his arrival.
+"Monsieur Daniel Lorenzi. From Paris. I'd bet..." Giulio left the question open, because the man could only be him, there were letters and phone calls to confirm the date and time of his arrival.
 
 Giulio went to meet him, extending his arm and patting his back in a friendly way.
 
-"You're from Paris, but with an Italian last name, right?"
+"You're from Paris, but have an Italian last name, right?"
 
 "I come from Nice. A long time ago... but you aren't Amalia Giacosa..." Daniel replied, with a quick smile, holding out his hand.
 
-Giulio laughed. "My sister, it's she who runs things here. All the ideas are hers, I'm the errand boy: I'm only in charge outside that door. And even then..." 
+Giulio laughed. "My sister, she's the one who runs things here. All the ideas are hers, I'm the errand boy. I'm only in charge outside that door. And even then..." 
 
-He said the last sentence without smiling, in a low voice. Daniel pretended not to have heard him. He asked: "Can I have a glass of water?"
+He said the last sentence without smiling, in a low voice. Daniel pretended not to have heard him. He asked, "Can I have a glass of water?"
 
 He went and sat down with his back to the bar. 
 
@@ -277,9 +277,9 @@ She got up, offering a smile as bright as the July moon, and Daniel held his bre
 
 "People from film, theater, television, lawyers. My wife, my ex-wife, is a lawyer. She deals with rights, performance contracts... so I've had the chance to meet many actors, directors, set designers, and even lawyers, who had houses with empty wine-cellars. So..."
 
-"So you filled the cellars for them," said Amalia, her smile breaking down into a half-laugh. 
+"So you filled their cellars for them," said Amalia, her smile breaking down into a half-laugh. 
 
-"No... not filled... I made sure they had the right bottles for every occasion...I hope."
+"No... not filled... I made sure they had the right bottles for every occasion... I hope."
 
 Daniel shrugged his shoulders and looked her in the eye. Amalia shifted her gaze toward the center of the table.
 
