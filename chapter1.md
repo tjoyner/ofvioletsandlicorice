@@ -316,7 +316,7 @@ He stopped in front of a gelato shop. He felt a sudden desire for something fres
 Daniel started towards the *Savona*, forgetting he had a gelato in his hand.
 <br/><br/><br/>
 
-"The French will be center stage, this evening at  the *Tastevin*..." Luciano said sitting at the bar in the *Savona*. A French wine tasting. Do we need that, with all our own wine to drink?"
+"The French will be center stage, this evening at the *Tastevin*..." Luciano said sitting at the bar in the *Savona*. A French wine tasting. Do we need that, with all our own wine to drink?"
 
 "Coming from you, who doesn't go beyond Moretti..."
 
@@ -328,11 +328,11 @@ Silvio shrugged, continuing to clean the glasses. "Globalization, Luciano. The F
 
 "Maybe not God, but the prices, yes."
 
-"Yes, and really Giulio is the first. He reveres [designer wines](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vinidisegnati)... you know he doesn't give a damn about a good Barbaresco, Nebbiolo or Dolcetto. He likes to call the wine 'Cappuccino,' 'Crest Beak,' '[Point of Light](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#pointoflight),' 'Harlequin,' order grapes, mix, blend: Wine without vines..."
+"Yes, and Giulio is just the first. He reveres [designer wines](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vinidisegnati)... you know he doesn't give a damn about a good Barbaresco, Nebbiolo or Dolcetto. He likes to call the wine 'Cappuccino,' 'Crest Beak,' '[Point of Light](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#pointoflight),' 'Harlequin,' order grapes, mix, blend: Wine without vines..."
 
 "[You know how Amalia is](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#youknowhow)..."
 
-"[How she's become, Amalia](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#howamalia)."
+"[What she's turned into, Amalia](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#comediventata)."
 
 "[Giulio would like to work the vineyard](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#giuliowould)."
 
@@ -342,12 +342,12 @@ Silvio shrugged, continuing to clean the glasses. "Globalization, Luciano. The F
 
 "There's always been death in the vineyard, first with famine, then with the Germans, then with tractors when things got better. Just like going to sea or a factory, Luciano. And, knock on wood: like driving a car."
 
-Luciano asked for another beer. He said, "Isn't it too late to do a tasting [of real French wine](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ofrealfrench)?"
+Luciano asked for another beer. He said, "Isn't it late to do a tasting [of real French wine](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ofrealfrench)?"
 
 <!-- Page 18 -->
-Silvio leaned over. "I agree, it's the first of May. They do tastings in November, October. But you go to find out the commitments, the possibilities. Isn't there air conditioning at the *Tastevin*? The play is always running... at this point, we do theater."
+Silvio leaned over. "I agree, it's the first of May. They do tastings in November, October. But you go to find out the commitments, the possibilities. Isn't there air conditioning at the *Tastevin*? The play is always running... now we do theater."
 
-"It's hot for you here," said Luciano.
+"[It's warm for you here](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#quidate)," said Luciano.
 
 "We're still in Alba," said Silvio bluntly.
 
@@ -414,7 +414,7 @@ Daniel looked at her. She was beautiful. Japanese with long legs, a slender tors
 
 "I like Italian cities, they are quiet, slow, like our provinces. They don't have fast trains or subways. And the stores are better than, or as good as, Tokyo, but with discounted prices. Have you seen how many Armani, Missoni, and Dolce &amp; Gabbana, there are in *Donne Vincenti*, across from the *Tastevin*? 
 
-Daniel hadn't looked at the labels, to him they appeared to be the usual clothes that were taken from the display window, [worn, but never as well as on a lifeless mannequin](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#wornbut). Like a wine that's put in a [conservative bottle](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#likeawine), but also [a little gaudy](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alittlegaudy), with its label and cork, its images and graphics, to catch a distracted eye, advertising, television. [While to him, the wine and its essence continued to speak to him with its fermentation, its desire to oxygenate, its desire to lightly settle inside the transparent glass.](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#whiletohim) 
+Daniel hadn't looked at the labels, to him they appeared to be the usual clothes that were taken from the display window, [worn, but never as well as on a lifeless mannequin](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#wornbut). Like a wine that's put in a [conservative bottle](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#likeawine), but also [a little gaudy](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alittlegaudy), with its label and cork, its images and graphics, to catch a distracted eye, advertising, television. [While he, the wine and its soul, continued to speak about its fermentation, its desire to oxygenate, its desire to lightly settle inside the transparent glass.](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#whiletohim) 
 
 Daniel looked at Maria. He'd never had a story, much less a story with an Asian. He looked at her eyes, her mouth, her bust like a teenager. He asked, switching to the familiar, "Why are you here? How did you come to Alba?"
 
