@@ -1,6 +1,6 @@
 "This is Marc," said the voice on the other end of the handset.
 
-Daniel looked at the time. It was 8. He had a headache. Back at the hotel the night before, after telling Maria that he'd see her at the *Tastevin*, he'd stopped to talk to Silvio. He'd offered him a Levi grappa &ndash; it was rough. It had felt like young acacia thorns, and now his throat burned. Or perhaps it burned simply because he had drunk too much of it.
+Daniel looked at the time. It was 8. He had a headache. Back at the hotel the night before, after telling Maria that he'd see her at the *Tastevin*, he'd stopped to talk to Silvio, who had offered him a Levi grappa &ndash; it was rough. It had felt like young acacia thorns, and now his throat burned. Or perhaps it burned simply because he had drunk too much of it.
 
 Then he'd gone up to his room, where he'd tried to call Marc. He hadn't reached him and left a message. 
 
@@ -28,21 +28,21 @@ No, Daniel knew, she wouldn't allow it. That, too, was a way to blackmail him, t
 
 "...Without asking Laurencine about it?"
 
-"We can always tell her that [it was a sudden decision](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#itwasasudden), Marc."
+"We can always tell her that [it was a sudden impulse](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#itwasasudden), Marc."
 
 "You know it's not believable..."
 
 "In the meantime, Nicole will be here, with me."
 
-"Let me think about it"
+"Let me think about it."
 
-"Thanks, Marc"
+"Thanks Marc."
 
 Daniel went to the bathroom to take a shower, then went down and asked for strong coffee.
 
 "Isn't that a risk for your palate?" asked Silvio.
 
-"If it's not hot enough to burn..."
+"As long as it's not hot enough to burn..."
 
 "[The coffee overpowers the flavors](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#thecoffee)."
 
@@ -86,7 +86,7 @@ Luciano closed the door and put the car in gear. Daniel followed him reluctantly
 
 "The train's going by," said Daniel, sighing.
 
-"Locals...no more than 3 or 4 a day..."
+"Locals... no more than 3 or 4 a day..."
 
 Daniel heard a scratching at the door. He opened it: it was the small black and white dog again, which quickly jumped inside the car.
 
@@ -112,13 +112,13 @@ He asked, "What kind of people are the Giacosa?"
 
 "You mean Amalia? Beautiful woman, wild..."
 
-"I meant both of them," Daniel emphasized. 
+"I meant both of them," Daniel emphasized.
 
-"They're orphans. The father had a horrible death in the vineyard, taken by lightning. Then the mother left shortly after of a broken heart. They came out on their own. She, Amalia, was a mother to Giulio, and never married. They had resources, sold some of their countryside property, now have lodgings, shops, the *Tastevin*. And also land, Ginotta, abandoned... a vineyard on the Barbaresco ridge that's the envy of those in the know."
+"They're orphans. The father had a horrible death in the vineyard, taken by lightning. Then the mother was gone shortly after from a broken heart. They grew up on their own. She, Amalia, was a mother to Giulio, and never married. They had resources, sold some of their countryside property, now have lodgings, shops, the *Tastevin*. And also land, the Ginotta, abandoned... a vineyard on the Barbaresco ridge that's the envy of those in the know."
 
 <!-- Page 27, top -->
 
-"They don't have the ways of those who plant vineyards," said Daniel.
+"They don't have the ways of those who cultivate vines," said Daniel.
 
 "[Whatever that is](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#whateverthat), no one here has the ways of the farmer, with the rare exceptions of the old, young ecologists, the greens, and those nostalgic for Slow Food. The rest is chemistry and mechanics in the hands of winemakers, technicians, advertisers, and international representatives."
 
@@ -128,7 +128,7 @@ They arrived at the fork to Neive.
 
 "Would you like to go up to Mango? First I'll show you where the vineyards are planted now, then others on the banks of the Tanaro. The insides of old churches."
 
-Luciano slowed the car and took a dirt road, stopping after a few hundred meters. He got out, Daniel and the dog followed him. Luciano slipped between the rows, and Daniel and the dog walked parallel to him. After 30 meters they came to a wall of old stones, went around it, and came out on the portico of a church.
+Luciano slowed the car and took a dirt road, stopping after a few hundred meters. He got out and Daniel and the dog followed him. Luciano slipped between the rows, and Daniel and the dog walked parallel to him. After 30 meters they came to a wall of old stones, went around it, and came out on the portico of a church.
 
 "It's from the 12th century, but if you don't already know that, you can't see it, and there's no one to tell you. Inside it's decorated with frescoes and [it's where they keep the tools](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#itswhere)."
 
@@ -149,26 +149,25 @@ Daniel lit the cigarette, through a light wind that moved the vine leaves. The d
 
 "Here, too...  they tell a lot of stories. I remember one time two of my colleagues were tasting a bottle of Bordeaux. They found all the flavors possible, then one of them said that he tasted iron, and the other said he'd tasted leather. They went on, affirming and denying. It ended there. But a year later it was learned that a key tied to a leather cord was found in the barrel that the bottle came from."
 
-"If it's true, fine noses and palates. If it isn't, just as good..." said Luciano, putting out the cigarette between his fingers and tossing it in between the rows. "Here at Sottimano they make a good Barbaresco."
+"If it's true, fine noses and palates. If it isn't, equally as good..." said Luciano, putting out the cigarette between his fingers and tossing it in between the rows. "Here at Sottimano they make a good Barbaresco."
 
 Daniel stood up, followed by the dog, walking, brushing the leaves, leaning on the ground, ripping up some grass, listening with his nose to scents and smells.
 
 "I'd like to sit in a bar...  can we go up to Mango?" said Daniel, climbing into the car, followed by the dog. 
 
-"[In the bars there's a return to drinking wine, instead of soft
-drinks](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#inthebars). Like they used to..."
+"[In the bars there's a return to drinking wine, instead of soft drinks](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#inthebars). Like they used to..."
 
 Climbing uphill, they crossed hazelnut groves, clean as a billiard cloth. Rectangles of corn, vines low and dense. The entrance to Mango looked like a construction site, with cranes and scaffolding for cleaning the facade, fixing cracks in the old walls.
 
 "The Germans returned in peace... [but mostly in Langhe no one looks at anyone's appearance](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#butmostly). It's the wallet that sings."
 
-At the bar in the piazza, Luciano ordered a Poretta beer and Daniel asked for a glass of Sottimano Cott&agrave;.
+At the bar in the piazza, Luciano ordered a Poretta beer and Daniel asked for a glass of the Sottimano Cott&agrave;.
 
-"Speaking of Sottimano, I believe I've made a discovery... ask for a bit of castelmagno cheese, it'll accompany it well."
+"Speaking of Sottimano, I believe I've made a discovery... ask for a bit of Castelmagno cheese, it'll accompany it well."
 
-Daniel smiled, and said "Why don't the Giacosa siblings take care of Ginotta? Is it a vineyard?"
+Daniel smiled, and said "Why don't the Giacosas siblings take care of Ginotta? Is it a vineyard?"
 
-"A farm above Elvio, below Madonna di Como, there are hectares of vines [along the river](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alongtheriver). There, lightning took their father during a summer storm. Since then Amalia no longer wants to touch the land, and she's also stopped her brother, who instead wanted to restore the vineyard and the farm... women, when they get an idea in their heads, it sets like cement..."
+"A farm above Elvio, below Madonna di Como, there are hectares of vines [along the river](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alongtheriver). There, lightning took their father during a summer storm. Since then Amalia no longer wants to touch the land, and she's also stopped her brother, who instead wants to restore the vineyard and the farm... women, when they get an idea in their heads, it sets like cement..."
 
 Daniel slowly drank his glass of Barbaresco, picking at pieces of seasoned Murrazzano [toma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus).
 
@@ -230,13 +229,13 @@ Daniel took a sip of wine, held it a moment in his mouth, then spit it into a bo
 Daniel had finished. He made arrangements to meet the following evening and received a round of convincing applause. Now he wanted to go into the yard, smoke a cigarette and see how the dog was behaving, but he was approached by one of those present, a tall, handsome man, with crew-cut hair and the face of someone who lives outdoors. Without introducing himself, he asked, "How was the wine that you tasted?"
 <!-- Page 32 -->
 
-Daniel looked at him, he wasn't trying to provoke him, the eyes of his interlocutor were clear, sincere, and sure. A professional?
+Daniel looked at him, the man wasn't trying to provoke him, the eyes of his interlocutor were clear, sincere, and assured. A professional?
 
 Daniel took up the glass, slowly swirling the liquid, and just wet his lips. He remembered it well. He said, "Garnet red color, hints of orange zest. You know, I would say, toasted hazelnut, licorice, white truffle, dried mushrooms with a base of tobacco." Daniel paused, looked at his interlocutor, looking for a smile. There was none. He continued, "Well structured, velvety, vital. In summary, a good '82 Barolo Ratti."
 
 The smile came. "Bravo, I couldn't have said it better myself, although I would have added to the smell of tobacco that of wild animal."
 
-He gave him a light clap on the shoulder with his wide hand and walked away. Giulio stopped him at the door, while Daniel went out the back and was greeted by a shy dog's barking.
+He gave him a light clap on the shoulder with his wide hand and walked away. Giulio stopped him at the door, while Daniel went out the back and was greeted by a faint bark from the dog.
 
 "Do you have a name?" he asked, taking his head in his hands. "And what would it be, and how can we find it out?"
 
@@ -253,7 +252,7 @@ Daniel heard her laugh, a restrained laugh from the throat, as he had imagined, 
 
 Amalia disappeared while Daniel went to sit at the table, followed by the dog that crouched at his foot, again placing his muzzle on his shoes.
 
-"You passed the exam," said Amalia, crossing the courtyard with a platter in hand and going to sit in front of Daniel.
+"You passed the exam," said Amalia, crossing the courtyard with a platter in hand and sitting in front of Daniel.
 
 "That would be?"
 
@@ -300,7 +299,7 @@ Amalia was absent from their discussion. Daniel saw her wandering gaze and suppo
 
 "To Ginotta?" asked Daniel.
 
-"Right, the Ginotta is also where he goes on all fours," Amalia said with a mocking tone.
+"Right, Ginotta, where you also go on all fours," Amalia said with a mocking tone.
 
 "I don't understand..." Daniel felt embarrassed.
 
@@ -314,7 +313,7 @@ Daniel laughed, but not so much for the posture in which he had been seen, but f
 
 "I was there by chance, I wanted to have a look around, breathe the air of the vineyards. Smell some of the odors..."
 
-"That was our farm... it still is... but we don't live there anymore... it's falling apart... but woe to anyone to work it or sell it... my sister..." Giulio didn't finish the sentence, the conversation was difficult in front of a stranger. So thought Daniel as Giulio left the small courtyard and re-entered the bar.
+"That was our farm... it still is... but we don't live there anymore... it's falling apart... [but trouble](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#maguai) to work it or sell it... my sister..." Giulio didn't finish the sentence, the conversation was difficult in front of a stranger. So Daniel thought as Giulio left the small courtyard and re-entered the bar.
 
 Daniel looked at Amalia, who was again distant, far away. The man got up from his chair, said that it was late, thanked her and made arrangements for the next evening. The woman acknowledged him with a nod. Daniel, followed by the dog, went back into the cone of light from the *Tastevin*.
 

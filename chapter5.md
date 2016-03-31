@@ -21,7 +21,7 @@ They stayed quiet for a few minutes, then she said, "There's a full moon in Gino
 
 Daniel nodded and said, "A few steps would also be good for Flop."
 
-He finished eating the salad and a bit of castelmagno cheese, and drinking his glass of Nebbiolo, while Amalia was conversing with some customers.
+He finished eating the salad and a bit of Castelmagno cheese, and drinking his glass of Nebbiolo, while Amalia was conversing with some customers.
 
 Daniel got up and went to the front door to smoke a cigarette. Flop was hopping up and down, sniffing the walls. With a peach-colored cape, Amalia appeared in the doorway of the *Tastevin*.
 
