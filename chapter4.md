@@ -4,7 +4,7 @@ They arrived at a small square where there was a carousel with small seats faste
 "*[Kick-in-the-ass](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#kickintheass)*,
 not elegant but that's what it's called. As a young girl I was crazy about the carousel, it seemed to fly... then, of course, came the kick..."
 
-Amalia laughed, Daniel looked at her white teeth, sharp, and thought of her character. She was hot-headed, mercurial. A few hours earlier she'd wounded him with a cold, hard stare, had slammed the door in his face, and now she'd taken him in the car and told him about her childish games. 
+Amalia laughed. Daniel looked at her sharp white teeth and thought of her character. She was hot-headed, mercurial. A few hours earlier she'd wounded him with a cold, hard stare, had slammed the door in his face, and now she'd taken him in the car and told him about her childish games.
 
 Daniel got out of the car and went over to the booth near the cash register of the carousel, and knocked a couple of times. A woman with red hair and a leather jacket opened it.
 
@@ -32,33 +32,32 @@ The woman nodded and went to the cashier to turn on the dome light, then flipped
 
 "The first round is all yours..."
 
-Amalia smiled, went up on the carousel, sat down on the seat, and hooked the chain. The *kick-in-the-ass* started to the notes of *La Paloma*, first slowly, then faster and faster.
+Amalia smiled, went up on the carousel, sat down on the seat, and hooked the chain. The *Kick-in-the-ass* started to the notes of *La Paloma*, first slowly, then faster and faster.
 
 Daniel looked at her suspended on high, turning, one hand hanging on the chain and the other holding the skirt that rose on her long legs. The ride lasted no more than five minutes, then the red-head stopped the ride and asked Daniel. "Should I continue?"
 
 "Again?" Daniel asked Amalia.
 
-"Are you coming also?" asked Amalia.
+"Are you coming too?" asked Amalia.
 
 "At a safe distance..." answered Daniel.
 
-Daniel sat down on the opposite side of Amalia, to see her smiling profile while the carousel started again, this time to the tune of *Under the Bridge Of Paris* sung by Dean Martin.
+Daniel sat down on the opposite side of Amalia, to see her smiling profile while the carousel started again, this time to the tune of *Under the Bridges Of Paris* sung by Dean Martin.
 
 Amalia felt more secure, and now revolved the seat herself and tried to reach Daniel by strongly hitting her arms on the chain, no longer paying attention to the skirt that fanned on her white thighs.
 
 Lights, yellow, blue, and red, were flickering to the music, until the large dome light began to slow down and then stop.
 
-"Again?" the red-head asked Daniel, but Amalia had already gotten out and tried to regain her balance, leaning on the caravan. 
+"Again?" the red-head asked Daniel, but Amalia had already gotten out and tried to regain her balance, leaning on the trailer. 
 
 "Thanks, we're all right," replied Daniel, approaching the cashier, followed by Flop, who hadn't stopped barking and chasing them around the ride.
 
-When they returned to the car, Daniel saw in Amalia's eyes a quick flash of melancholy. He'd hoped for comments on her ride on the *kick-in-the-ass*, but for a few kilometers she said nothing.
+When they returned to the car, Daniel saw in Amalia's eyes a quick flash of melancholy. He'd hoped for comments on her ride on the *Kick-in-the-ass*, but for a few kilometers she said nothing.
 
-And when she finally spoke to him it was to ask if he would return immediately to Paris, following the short class at the Tastevin.
-
+And when she finally spoke to him it was to ask if he would return immediately to Paris, following the short class at the *Tastevin*.
 <!-- Page 44 -->
 
-"[Perhaps my daughter will join me](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#perhapsmydaughter)," Daniel said.
+"My daughter might be joining me," Daniel said.
 
 "Are you married?" asked Amalia, with a bit of irritation.
 
@@ -72,15 +71,15 @@ Amalia slowed down. She asked, "How old is she?"
 
 "Twenty-three..."
 
-"[She must act quickly if she wants to come out](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#shemustact)."
+"[She must act quickly if she wants to get out of it](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#shemustact)."
 
-"Does she want to? This is the point."
+"Does she want to? That's the point."
 
 "You have to give her a reason."
 
 "If only it were easy..."
 
-"Choosing between living and dying should be easy. But it's true, is not always so."
+"Choosing between living and dying should be easy. But it's true, it's not always so."
 
 They were silent until Corneliano, where Amalia stopped the car near the Tesio pasta factory, asking Daniel if he wanted to wait in the car or follow her in. Daniel said he wanted to wait outside. He wanted to smoke a cigarette.
 

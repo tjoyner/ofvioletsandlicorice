@@ -38,7 +38,7 @@ Coffee at the Savona &ndash; *"Memories often need a place where they can be sto
 Coffee at Ginotta &ndash; *"Find two more syringes."*
 
 [Bagna Cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), etc. &ndash; *He asked for [bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), and a plate of [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of a breadstick, coarse and uneven.*  
-House red &ndash; *a light Dolcetto*  
+House red &ndash; *The wine, a light Dolcetto, seemed respectable.*
 Cup of fruit and large coffee  
 
 <h2>Chapter 5</h2>

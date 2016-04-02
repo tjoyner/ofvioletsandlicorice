@@ -28,27 +28,27 @@ Beyond the hazelnuts, which Daniel recognized, they crossed the vineyard, now re
 
 "[You've also played a part...](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#youalso)"
 
-Giulio was sitting on a wooden bench, Flop, sniffing the ground, ran back and forth, slipping on hazelnuts, and returned to the yard wagging his tail around Daniel's legs.
+Giulio was sitting on a wooden bench. Flop, sniffing the ground, ran back and forth, slipping on hazelnuts, and returned to the yard wagging his tail around Daniel's legs.
 
 "Do you think I haven't tried? My sister's head is harder than a rock. We fought for years until I decided to let it go. She's my sister, she raised me, she's my family."
 
-Daniel didn't know what to add. He remained silent in the fresh Alpine air that knew the snow of Bisalta and Monviso. A shutter suddenly slammed and Daniel stood to look at it: framed in the first floor window, facing him, was Amalia, with tousled hair, in a blue robe with small white flowers.
+Daniel didn't know what to add. He remained silent in the fresh Alpine air that knew the snow of Bisalta and Monviso. A shutter suddenly slammed and Daniel stood to look at it. Framed in the first floor window, facing him, was Amalia, with tousled hair, in a blue robe with small white flowers.
 
 "I have visitors?"
 
 "I didn't know you were coming here to sleep," answered Giulio, as if to excuse their presence.
 
-"Have you already had coffee?" her tone had softened.
+"Have you already had coffee?" Her tone had softened.
 
 "There won't be problems with the dog, there's nothing inside that can be damaged," Giulio said, quietly, while Flop slipped into the slightly open door.
 
-Daniel walked into a large kitchen that was a mixture of smells: flowering potatoes, apples, garlic, onion, rosemary, and cold ashes. He looked around the hearth, which was in a shadow, wide and deep with a big oak beam shelf. Cupboards and chests were stacked along the walls, while in the center a long table, with a few chairs scattered around it, was littered with dishes and cookware, as if someone had forgotten to wash up or take them away.
+Daniel walked into a large kitchen that was a mixture of smells: flowering potatoes, apples, garlic, onion, rosemary, and cold ashes. He looked around the hearth, which was in a shadow, wide and deep with a big oak beam shelf. Cupboards and chests were stacked along the walls, while in the center, a long table with a few chairs scattered around it was littered with dishes and cookware, as if someone had forgotten to wash up or take them away.
 
 <!-- Page 38 -->
 
-Suddenly Daniel felt the scent of coffee wafting from a gas stove and the gurgling of the liquid seeping into the Neopolitan roast.
+Suddenly Daniel caught the scent of coffee wafting from a gas stove and heard the gurgling of the liquid seeping into the Neopolitan roast.
 
-Amalia came into the kitchen while Daniel turned off the gas. 
+Amalia came into the kitchen while Daniel turned off the gas.
 
 "Find two more [syringes](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#syringes)," she said, going to look for cups in the cupboard.
 
@@ -66,7 +66,7 @@ He heard a light step behind him and realized it was Amalia. Without turning, he
 
 "I didn't want to humiliate it," said Amalia with a harsh tone. "I didn't want anything from it, only this. I had already taken everything."
 
-She paused. Daniel turned around. She was beautiful in the sunlight, her face drawn, her eyes bright. She added:  "Why do I talk to you? Why do I talk to you about these things?"
+She paused. Daniel turned around. She was beautiful in the sunlight, her face drawn, her eyes bright. She added, "Why do I talk to you? Why do I talk to you about these things?"
 
 <!-- Page 39 -->
 
@@ -78,7 +78,7 @@ Amalia leaned against a stone bath. She ran a hand through her hair, her face ha
 
 "My brother told you," she said, "that our father died in this vineyard, taken by lightning. He was coming to look for me. He thought I was in the rows, while I was in the barn playing with a stupid rag doll. It's all here."
 
-Amalia closed her eyes and shook her head. Daniel wanted to hug her. He did not. He said, "[Don't you think that by this time your father is part of this vineyard](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dontyouthink)?"
+Amalia closed her eyes and shook her head. Daniel would have liked to hug her. He did not. He said, "[Don't you think that by this time even your father would be involved in this vineyard](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dontyouthink)?"
 
 Amalia looked at him with pride, a look of defiance. Then she got up from the edge of the bath and walked towards the yard. She went into the kitchen, slamming the door.
 
@@ -109,14 +109,14 @@ It would be nice to have a short vacation with his daughter, it hadn't happened 
 
 He looked at Flop, who was crouched near the door. He wondered what he would do with Flop if Nicole came. There were too many uncertainties in his thoughts. He lay down on the bed, he needed to rest before going to breakfast.
 
-When he came out on Via Roma he smelled an intense aroma of cocoa and vanilla that seemed to scrape his throat, so he turned towards Via Toti, as always followed by Flop. He was looking for a restaurant and was lost among the narrow streets, the low houses with balconies covered with geraniums, antique shops and hardware stores, crowded wine shops and bakeries displaying special breads of all shapes baked in wood-burning ovens. He thought he saw Amalia coming out of a shop. She wore a white dress tied at the waist by a wide blue belt. He stopped in front of the entrance, it was a hairdresser. He read the name, Egoist, smiled and ducked towards a piazza with medieval towers and tall bell towers. He saw a sign *Tavern of the Poets*: with that title, Daniel thought, they wouldn't stop dogs from entering.  He went in. The atmosphere was pleasant, with its small tables and shelves of wine on the walls, it had the appearance of a bistro. He sat and looked at the short list of daily specials. He asked for [bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), and a plate of [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of a breadstick, coarse and uneven.
+When he came out on Via Roma he smelled an intense aroma of cocoa and vanilla that seemed to scrape his throat, so he turned towards Via Toti, as always followed by Flop. He was looking for a restaurant and was lost among the narrow streets, the low houses with balconies covered with geraniums, antique shops and hardware stores, crowded wine shops, and bakeries displaying special breads of all shapes baked in wood-burning ovens. He thought he saw Amalia coming out of a shop. She wore a white dress tied at the waist by a wide blue belt. He stopped in front of the entrance, it was a hairdresser. He read the name, Egoist, smiled and ducked towards a piazza with medieval towers and tall bell towers. He saw a sign *Tavern of the Poets*: with that title, Daniel thought, they wouldn't stop dogs from entering.  He went inside. The atmosphere was pleasant, with its small tables and shelves of wine on the walls, it had the appearance of a bistro. He sat and looked at the short list of daily specials. He asked for [bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), and a plate of [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) with roasted potatoes. He ordered the house red and he gave Flop, who was wedged under the chair, a piece of a breadstick, coarse and uneven.
 
 <!-- Page 41 -->
-He ate with pleasure: the bread was good,  the olive oil was good, and the wine, a light Dolcetto, seemed respectable. He ended with a cup of cooked fruit and a large coffee. He gave a few more pieces of the breadstick to Flop, then asked for a bowl of water. When Flop was finished drinking, he paid and they left.
+He ate with pleasure: the bread was good, the olive oil was good, and the wine, a light Dolcetto, seemed respectable. He ended with a cup of cooked fruit and a large coffee. He gave a few more pieces of the breadstick to Flop, then asked for a bowl of water. When Flop was finished drinking, he paid and they left.
 
 They turned a little aimlessly, towards the cathedral and town hall. Daniel bought a few postcards, then went down along Via Maestra, through tourists and school groups.
 
-He saw a car stop on Via Maestra and heard a horn beep. It was a silver Toyota SUV, from its window a hand made a sign to hurry.  It reached Via Mandelli and the door opened. It was Amalia. "Flop can get in the back," she said, accelerating towards Via Paruzza. They left Alba and took the freeway to Turin.
+He saw a car stop on Via Maestra and heard a horn beep. It was a silver Toyota SUV, and from its window a hand made a sign to hurry. It reached Via Mandelli and the door opened. It was Amalia. "Flop can get in the back," she said, accelerating towards Via Paruzza. They left Alba and took the freeway to Turin.
 
 "I have to get some salami and agnolotti pasta. Want to come with me?"
 
