@@ -120,7 +120,7 @@ He saw a car stop on Via Maestra and heard a horn beep. It was a silver Toyota S
 
 "I have to get some salami and agnolotti pasta. Want to come with me?"
 
-"You've kidnapped me," he said.
+"I've been kidnapped," he said.
 
 They passed through narrow villages and [countryside with enclosed industrial warehouses](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#countryside), a long row of hangars that blocked the view of the hills. Outlet, Trony, Casa della Luce, Divani & Divani: showrooms displaying tractors and Mercedes, [Magazzini del Giocattolo, Casa del Mobile da Giardino, Casa del Legno](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#magazzini), colored blue, yellow, and candy pink. Warehouses that made the streets look like one giant Lego.
 
