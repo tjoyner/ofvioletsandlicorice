@@ -46,7 +46,11 @@ UPDATE_LIST="126996872554 insidedustjacket.md  \"Inside Dust Jacket\"
 eval set -- $UPDATE_LIST 
 while [ ! -z "$1" ]  # while $1 is not empty
 do
-  /c/perl64/bin/perl ../api/updateblog.pl $1 $2 "$3"
+  if ! git diff --quiet $2; then
+    /c/perl64/bin/perl ../api/updateblog.pl $1 $2 "$3"
+  else
+    echo "$2 did not change"
+  fi
   shift 3
 done
 # For title based on chapters and date
