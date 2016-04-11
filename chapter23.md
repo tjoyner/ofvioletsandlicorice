@@ -1,7 +1,7 @@
 <!-- Pages 150-155 -->
 "The bets are honored," Baravalle had said, returning the piece of paper on which Giulio had given up his half of Ginotta. Amalia had taken it, folded it many times and placed it in the neckline of her dress.
 
-"You pushed that wad of paper far down," Nicole said.
+"You really tucked in that wad of paper," Nicole said.
 
 "Why didn't you rip it up immediately?" Maria asked.
 

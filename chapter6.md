@@ -49,7 +49,7 @@ Daniel nodded, "If there's nothing local..."
 
 Tourists with backpacks and shorts crossed the piazza, waving.
 
-"There's a village with bungalows higher up, with swimming pools and tennis courts and sun every day, which is full from June to September, then it closes. They came to put it up from Savona, helped by the [Mountain Community](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#mountaincommunity), inter-regional funding, and funds from the European Community. People who know how to get the money out of the coffers in Brussels."
+"There's a village with bungalows higher up, with swimming pools and tennis courts and sun every day, which is full from June to September, then it closes. They came to put it up from Savona, helped by the [Mountain Community](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#mountaincommunity), inter-regional funding, and funds from the European Community. People who know how to get money out of the coffers in Brussels."
 
 The waiter arrived with a white wine, a beer, a plate of olives and slices of salami.
 
