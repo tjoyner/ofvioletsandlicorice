@@ -55,7 +55,7 @@ Salad &ndash; *[He] had eaten a hearty salad at the hotel.*
 <h2>Chapter 8</h2>
 Serafino &ndash; *They... toasted with a Serafino, lightly frizzante.*  
 [Vitello Tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato), etc. &ndash; *They ate [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) and cold peppers with a small [bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), then she wanted to try the tagliolini with meat ragu and rabbit with peppers.*  
-Chionetti Dolcetto &ndash; *"Dogliani is important. We've been there, they have a beautiful cemetery."*  
+Chionetti Dolcetto &ndash; *"Dogliani is important. We've been there, it has a beautiful cemetery."*  
 Goat cheese, fresh [toma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus) &ndash; *A cheese course arrived, small slivers of goat cheese, triangles of fresh [toma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus).*  
 [Barolo Chinato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chinato) and an ice &ndash; *The server arrived with a cart of digestifs. He suggested a [Barolo Chinato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#chinato) and an ice.*  
 
