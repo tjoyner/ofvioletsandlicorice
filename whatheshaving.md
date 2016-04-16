@@ -33,7 +33,7 @@ Barolo &ndash; *He was working with a Barolo... he looked at the crowd... he had
 Salami and [toma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus) cheese &ndash; *"Would it be possible to have both?"*
 
 <h2>Chapter 3</h2>
-Coffee at the Savona &ndash; *"Memories often need a place where they can be stored. One's head alone isn't enough," Daniel said, pouring half a bag of sugar in his coffee.*
+Coffee at the *Savona* &ndash; *"Memories often need a place where they can be stored. One's head alone isn't enough," Daniel said, pouring half a bag of sugar in his coffee.*
 
 Coffee at Ginotta &ndash; *"Find two more syringes."*
 
