@@ -122,7 +122,7 @@ They took the main road to Canale, entering Roero, where nature was more rugged,
 
 They were seated at a table of the *Bicchier di Vino*, under the low arcades of the main street. 
 
-The bar had large, empty tables and high shelving on the walls. The wines were categorized by region, four side shelves were stocked with [*Recommendations from the World*](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#recommendationsfrom). On the back labels of those bottles they could look up the Italian importer's addresses, but Luciano said there was no need. He asked Daniel if he'd also like a small plate and a glass of Roero, then he went to find the owner.
+The bar had large, empty tables and high shelving on the walls. The wines were categorized by region, four side shelves were stocked with "[Recommendations from the World](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#recommendationsfrom)." On the back labels of those bottles they could look up the Italian importer's addresses, but Luciano said there was no need. He asked Daniel if he'd also like a small plate and a glass of Roero, then he went to find the owner.
 <!-- Page 74 -->
 
 He returned with some slices of local salami, sausage from Bra, ham from Langhe, a bowl of sliced olives, pieces of aged Castelmagno cheese, and goat cheese from Val Varaita.
