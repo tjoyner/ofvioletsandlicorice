@@ -1,9 +1,9 @@
 <!-- Pages 94-95 -->
-This time it was Floriana who interrupted Eta Beta's story, who, approaching the first turns after Limone and preparing to head to the Calle di Tenda, asked Eta Beta: "Ok, but where was Francesca?"
+This time Eta Beta's story was interrupted by Floriana, who, approaching the first turns after Limone and preparing to head to the Calle di Tenda, asked Eta Beta, "Ok, but where was Francesca?"
 
 There was a moment of silence, then Eta Beta, almost moaning, said, "I never knew. But I'd like to get there by degrees, I'd like Giacomo to get there by degrees, to tell how he never knew where Francesca lived. Perhaps he had an idea, but he was never certain."
 
-Then he resumed the story, with the same tone, gentle and monotonous, of a few moments before.
+Then he continued his story with the same tone, gentle and monotonous, of a few moments before.
 <br/><br/><br/>
 
 "In the days ahead, after that request which Giacomo had misjudged, taking it for a game, a skirmish, he continued to receive e-mails where Francesca told him about a client who wanted a dining room with shades of blue, from curtains to towels, and she wrote that she went to buy some colorful shoes at Pulcinella, with high heels, and a low-cut blouse, violet, that her sons had judged 'slutty.' 
@@ -17,7 +17,7 @@ Then he resumed the story, with the same tone, gentle and monotonous, of a few m
 
 "She seemed to understand, and in the evening, when they should have been in the semi-darkness of Villatella with tomatoes and mushrooms in olive oil, sliced salami, anchovies in butter, and marinated tench fish, she sent him a short message saying she was drinking a Negroni with a girlfriend at the port.
 
-"The missed appointment stayed on Giacomo's conscience, from which, in the days ahead, he tried to recover with tenderness, witticisms, and much, much, attention to what she wrote. In the depths of his consciousness, from those parts that were detached or just inattentive, floated that word: *port*.
+"In Giacomo's conscience there remained the missed appointment, from which, in the days ahead, he tried to recover with tenderness, witticisms, and much, much, attention to what she wrote. In the depths of his consciousness, from those parts that were detached or just inattentive, floated that word: *port*.
 
 "Francesca reacted well to the missed meeting, she said she would save the Pulcinella for another occasion, she didn't specify which, and she didn't speak again of the 'slutty' blouse."
 
