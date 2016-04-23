@@ -42,6 +42,7 @@ UPDATE_LIST="126996872554 insidedustjacket.md  \"Inside Dust Jacket\"
              129355307919 book.html \"Table of Contents\"
              138299878514 review3.md \"Review: Some thoughts on 'Of Violets and Licorice' by Nico Orengo\"
              139874306654 whatheshaving.md \"I'll Have What He's Having\"
+             135723907944 threetricks.md \"Excerpt: The Three Tricks\"
              "
 eval set -- $UPDATE_LIST 
 while [ ! -z "$1" ]  # while $1 is not empty
