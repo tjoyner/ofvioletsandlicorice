@@ -9,7 +9,7 @@ those who are starting to encounter it in their journeys, those who have been to
 to go there. References to towns, historical vinewards and producers are perfectly integrated into the narrative, 
 which seems to flow without particular upheavals but which slowly and delicately sketches the story and background, and, above all, is very thought-provoking.
 
-A French sommelier, Daniel, travels to Alba for a few days for work, and between his wine tasting classes at a local wine-bar visits
+A French sommelier, Daniel, travels to Alba for a few days for work, and between his wine tasting classes at a local wine bar visits
 places, crosses landscapes, and above all encounters *human portraits* that fully illustrate the great land that is the Langhe, and
 which convey to the reader that personality, almost surly, introverted, and timid, but blunt, of the people of this land.
 This arises from his encounters with the men and women who will occupy well defined roles in the narrative and who will become more

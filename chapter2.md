@@ -208,7 +208,7 @@ This was the lesson Daniel liked least, all theoretical, abstract, but he inevit
 
 "Wine is recognized by its color, its smell, and naturally, its taste. Thus: remembering similar experiences, tasted previously. The wine is first 'dressed' in a white crystal glass so you can look at it. And as you would never admire a rose in the shadow, so a glass of wine should be looked at with a natural light, the best is sunlight, or, as we are doing now, that of a candle, on a white background."
 
-Daniel had returned to the *Tastevin* to face the 19 for the second lesson. He'd found Giulio waiting for him. He had the dog with him, who'd been kept in the courtyard of the wine-bar. As in the *Savona*, with Silvio, he knew by Giulio's look upon seeing the mutt that he should have worked out an agreement, but he couldn't leave it behind. 
+Daniel had returned to the *Tastevin* to face the 19 for the second lesson. He'd found Giulio waiting for him. He had the dog with him, who'd been kept in the courtyard of the wine bar. As in the *Savona*, with Silvio, he knew by Giulio's look upon seeing the mutt that he should have worked out an agreement, but he couldn't leave it behind. 
 
 Daniel felt that they had an increased number of participants for this talk, compared to the previous evening: local faces, stern rural faces, and gentlemen of excessive elegance for the place and time.
 

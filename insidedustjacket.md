@@ -1,10 +1,10 @@
-Daniel Lorenzi is a Parisian sommelier who's come to Alba to give a wine tasting course on the "Great Wines of France." Teaching the people of Langhe how to drink might seem like a paradox, but this is the "new" Langhe, with its strange mixture of business, gastronomic tourism, and old traditions, and who knows if this foreign "nose," so attentive to traces and nuances, can possibly arrive at a better understanding of the true essence of things. 
+Daniel Lorenzi is a Parisian sommelier who's come to Alba to give a wine tasting course on the "Great Wines of France." Teaching the people of Langhe how to drink might seem like a paradox, but this is the "new" Langhe, with its strange mixture of business, gastronomic tourism, and old traditions, and perhaps this foreign "nose," so attentive to traces and nuances, can come to a better understanding of the true essence of things than everyone else.
 
-There's a young woman, for example, from the enoteca *Tastevin*. Her name is Amalia, and she has the pride and fragility of one who's careful to never ask anyone for anything. Everyone knows that the obsessive affection her brother Giulio feels for her hides a tragic memory, but it will take the arrival of a lonely and charming man like Daniel to ignite old pains and new anger, and bring her back to life.
+There's a young woman, for example, from the wine bar *Tastevin*. Her name is Amalia, and she has the pride and fragility of one who's careful to never ask anyone for anything. Everyone knows that the obsessive affection her brother Giulio feels for her hides a tragic memory, but it will take the arrival of a lonely and fascinating man like Daniel to ignite old pains and new anger, and bring her back to life.
 
 There's the strange figure of a writer who calls himself [Eta Beta](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#etabeata), who appears out of the blue with many tricks in his pocket, and a sad story of love to tell. 
 
-There's a farm, Ginotta: the land of Barbaresco, if someone would look after it. After being abandoned for years, a challenge from the past will return it to the limelight. 
+There's a vineyard, Ginotta: land for Barbaresco, if someone would take care of it. After being abandoned for years, a challenge from the past will return it to the limelight. 
 
 The busy hills of the Langhe intersect with these and other colorful characters: a taxi driver who drinks beer, wine producers, [*Pallone Elastico*](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#pallone) players, gamblers, winemaking technicians, and also, inevitably, foreign tourists. 
 
