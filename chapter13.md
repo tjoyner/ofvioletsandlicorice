@@ -26,7 +26,7 @@ Eta Beta shrugged and turned his gaze towards the seat as if he wanted to fall a
 
 "And you can't cultivate some vineyards here, without going so far away?" Floriana asked. 
 
-"Tell that to my sister. Even if now it's no longer needed... [it's done](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ormailhofatta)."
+"Tell that to my sister. Even if now it no longer matters... [it's done](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#ormailhofatta)."
 
 He finished his sentence with tight lips, his hands gripping the steering wheel, passing Nicole's car with a sharp acceleration.
 
