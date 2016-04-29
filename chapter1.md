@@ -101,7 +101,7 @@ Silvio, curious, hurried down the hallway and went down the stairs, towards the 
 <br/><br/><br/>
 
 
-"You want to buy a vineyard? You can't buy any here. No one is selling. Whoever owns the land holds onto it. The last purchase, it was in the Seventies, went to Fiat in Turin, who bought 17 million hectares. Today it's worth 700, 800. Look around: there are many millionaires. While it lasts..." 
+"You want to buy a vineyard? You can't buy any here. No one is selling. Whoever owns the land holds onto it. The last purchase, it was in the Seventies, went to Fiat in Turin, who bought 17 million hectares. Today it's worth 700, 800. Look around: they are all millionaires. While it lasts..." 
 
 He drove slowly through the hills combed with vineyards. He looked in the rearview mirror, trying to get him to talk, but the stranger didn't seem to have a mouth, nodding his head while he looked around. Luciano was taking him to the *Savona*. Silvio had called him yesterday evening, saying that the Frenchman had asked for him for the morning; he wanted to take a tour of the hills.
 <!-- Page 7 -->
@@ -110,7 +110,7 @@ He continued, "You don't see anyone working, but everything is as it should be. 
 
 "Herbicides, tractors, a little bit of chemistry... the fog and the sun do the rest, as long as the ground doesn't wear out..."
 
-They passed the *Tre Stelle* and they turned towards Neive. Luciano swerved slightly, not expecting an answer. He asked: "You're a wine connoisseur?"
+They passed the *Tre Stelle* and they turned towards Neive. Luciano swerved slightly, not expecting an answer. He asked, "You're a wine connoisseur?"
 
 "I sample it," was the reply.
 

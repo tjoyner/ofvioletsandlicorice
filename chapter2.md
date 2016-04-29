@@ -104,7 +104,7 @@ But the dog seemed to have already guessed Luciano's order, because it was crouc
 
 "Don't exaggerate," said Daniel, "in France they're more traditional, but here, from you, in Italy, there's more innovation, more invention."
 
-"Regarding inventive, we are inventive. Here in Langhe, everything's invention. We're always inventing. We invented the Langhe, a paradise of vineyards for lovers of wine, and tourists.  'Come to the paradise of Langhe. Great food, great wine, hills that are the envy of Tuscany.' All bull. Here you don't know what to do except eat and get drunk, if you can afford it. Otherwise, you can go see a couple of games of *pallone elastico*, hoping they are properly rigged, or be drowned in the fog that bites you from mid-October onward. Or escape..."
+"Talk about inventive, we are inventive. Here in Langhe, everything is invented. We're always inventing. We invented the Langhe, a paradise of vineyards for lovers of wine, and tourists.  'Come to the paradise of Langhe. Great food, great wine, hills that are the envy of Tuscany.' All bull. Here you don't know what to do except eat and get drunk, if you can afford it. Otherwise, you can go see a couple of games of *pallone elastico*, hoping they are properly rigged, or be drowned in the fog that bites you from mid-October onward. Or escape..."
 
 Daniel was beginning to understand why the taxi driver, Luciano, as he seemed to be called, only drank beer.
 
@@ -120,9 +120,9 @@ He asked, "What kind of people are the Giacosa?"
 
 "They don't have the ways of those who cultivate vines," said Daniel.
 
-"[Whatever that is](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#whateverthat), no one here has the ways of the farmer, with the rare exceptions of the old, young ecologists, the greens, and those nostalgic for Slow Food. The rest is chemistry and mechanics in the hands of winemakers, technicians, advertisers, and international representatives."
+"[For that matter](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#whateverthat), no one here has the ways of the farmer, with the rare exceptions of the old, young ecologists, the greens, and those nostalgic for Slow Food. The rest is chemicals and machinery in the hands of winemakers, technicians, PR workers, and international sales reps."
 
-"It's like that everywhere: wine is an industry. How do you stick out," Daniel said petting the dog, which returned the caress by licking the back of his hand.
+"It's like that everywhere: wine is an industry. Like making sports cars," Daniel said petting the dog, who returned the caress by licking the back of his hand.
 
 They arrived at the fork to Neive. 
 
@@ -159,7 +159,7 @@ Daniel stood up, followed by the dog, walking, brushing the leaves, leaning on t
 
 Climbing uphill, they crossed hazelnut groves, clean as a billiard cloth. Rectangles of corn, vines low and dense. The entrance to Mango looked like a construction site, with cranes and scaffolding for cleaning the facade, fixing cracks in the old walls.
 
-"The Germans returned in peace... [but mostly in Langhe no one looks at anyone's appearance](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#butmostly). It's the wallet that sings."
+"The Germans have returned in peace... [but mostly in Langhe no one looks you in the eye. It's the wallet that sings.](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#butmostly)"
 
 At the bar in the piazza, Luciano ordered a Poretta beer and Daniel asked for a glass of the Sottimano Cott&agrave;.
 

@@ -54,7 +54,7 @@ Luciano opened the door for Daniel, outside of the *Savona*.
 
 Daniel laughed: "You're best calling card for The Office of Tourism."
 
-"No, it's that I can't take all of this wine rhetoric anymore. We have only that and we build castles of lies. And there's no place for anything, for a memory. We all seem born gentlemen since this is no longer a land of ruin."
+"No, it's that I can't take all of this wine rhetoric anymore. We have only that and we build castles of lies. And there's no place for anything, for a memory. We all seem born gentlemen since this is no longer a land of hardship."
 
 "This is good," said Daniel, who would have preferred to think about his own issues.
 
