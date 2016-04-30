@@ -86,28 +86,28 @@ Daniel, extricating himself with difficulty, reached the yard. Amalia was sittin
 
 Daniel looked at her and thought he saw the gestures that his mother or his grandmother, or any country woman, would have made, in years past. Where was the Amalia of the *Tastevin*, Daniel asked himself, all efficiency, with the air of a woman who knows where she's going?
 
-"[What did I do wrong](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#cosahosbagliato)?" she asked when Daniel was in front of her. 
+"[Where did I go wrong](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#cosahosbagliato)?" she asked when Daniel was in front of her. 
 
-"[And what isn't wrong](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#cosanonsisbaglia)?" answered Daniel, going to sit on the steps of the small concrete sidewalk that followed the perimeter of Ginotta. 
+"[And what doesn't go wrong](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#cosanonsisbaglia)?" answered Daniel, going to sit on the steps of the small concrete sidewalk that followed the perimeter of Ginotta. 
 
-"However one does something, there's always a degree of error," continued Daniel, searching in his pocket for a pack of cigarettes: he had forgotten to smoke yesterday, he thought. He also did it to buy time. 
+"However one does something, there are always some mistakes," continued Daniel, searching in his pocket for a pack of cigarettes: he had forgotten to smoke yesterday, he thought. He also did it to buy time. 
 
 "Yes, but I'd at least like to see the correct part."
 
 "Where's Giulio?" Daniel asked, lighting a cigarette that he had to straighten, out of a pack that seemed to have suffered from the tension and nervousness that Daniel had been subjected to in recent days.
 
-"I left him downstairs... this was all I was able to say to him: '[Do you have any idea](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tenerendiconto)?' Daniel, do you know what I said to him: 'Do you have any idea?' That's what I told him. I wanted to kill him, break the head of that asshole, and all I was able to tell him was that stupid 'Do you have any idea?'".
+"I left him downstairs... this was all I was able to say to him: '[Do you have any idea](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tenerendiconto)?' Daniel, do you know what I said to him: 'Do you have any idea?' That's what I told him. I wanted to kill him, smash the head of that asshole, and all I was able to tell him was that stupid 'Do you have any idea?'".
 <!-- Page 117 -->
 
 Daniel tapped his ashes and inhaled deeply, more to hold his breath than to smoke. He looked at Amalia, crying silently, her tears slowly falling on the potato peels. To distract himself, Daniel tried to hear if some of them fell on the aluminum with a different sound. His self-absorption was broken by the sharp sound of the colander being thrown on the sidewalk.
 
 Amalia had risen abruptly and crossed the yard, screaming, "I'm a prisoner in my own home..."
 
-[She walked on the white line of cement that traced on the ground the border of her sorrow](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tracciata). She stepped on it again and again, repeating: "Prisoner in my house twice. What have I done to deserve this? What?"
+[She walked on the white line of cement that traced in the earth the border of her grief](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tracciata). She stepped on it again and again, repeating, "Prisoner in my house twice. What have I done to deserve this? What?"
 
-Daniel went over to her slowly. He had the sun in his eyes and the blue of the sky absorbed her light blue dress, but the patch of her coppery hair remained to show him where the grief was. [He walked across the yard until he reached it, then enveloped her awkwardly in his arms, without saying anything, because he had nothing to say except that pain is born far away and descends downward, just like the trickles that become streams or rivers depending on the terrain they encounter, and also that they can't be controlled by us, not enough.](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#riviofiumi)
+Daniel went over to her slowly. He had the sun in his eyes and the blue of the sky absorbed her light blue dress, but the patch of her coppery hair remained to show him where the grief was. [He advanced into the courtyard until he reached it, then enveloped her awkwardly in his arms, without saying anything, because he had nothing to say except that sorrow is born far away and descends downward, just like the trickles that become streams or rivers depending on the terrain they encounter, and also that it can't be controlled by us, not enough.](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#riviofiumi)
 
-Amalia was rigid, she didn't seem to notice that embrace, she stood motionless in the middle of the yard, as if she wanted to take root, without taking the arms that were wrapped around her chest.
+Amalia was rigid, she didn't seem to notice that embrace, she stood motionless in the middle of the yard as if she wanted to take root, without taking the arms that were wrapped around her chest.
 
 Daniel held her like that, for some time, waiting for her to raise her face up to his, and for another kiss to come. But it never did.
 
