@@ -9,6 +9,16 @@ sed -i '/<div style="text-align/,$d' backofdustjacket.md.tmp
 typeset -i i LAST_CHAP
 LAST_CHAP=23
 
+# use previous commit for diffs
+PREV_COMMIT=
+
+while getopts ":p" Option
+do
+    case $Option in
+    p    ) PREV_COMMIT=HEAD~
+    esac
+done
+
 FNAME="ofvioletsandlicorice_ch1_${LAST_CHAP}_`date +%m%d%Y`"
 sed -i "s/779\/ofviolets.*\.mobi/779\/$FNAME.mobi/" book.html
 sed -i "s/779\/ofviolets.*\.epub/779\/$FNAME.epub/" book.html
@@ -47,7 +57,7 @@ UPDATE_LIST="126996872554 insidedustjacket.md  \"Inside Dust Jacket\"
 eval set -- $UPDATE_LIST 
 while [ ! -z "$1" ]  # while $1 is not empty
 do
-  if ! git diff --quiet $2; then
+  if ! git diff --quiet ${PREV_COMMIT} $2; then
     /c/perl64/bin/perl ../api/updateblog.pl $1 $2 "$3"
   else
     echo "$2 did not change"
