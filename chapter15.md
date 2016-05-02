@@ -47,7 +47,7 @@ They'd gone to take Giulio back home. Daniel had compelled him to shave and put 
 He'd resisted, he'd said that he didn't feel well. He finally admitted to not wanting to see Amalia. He didn't want to see that line of cement and plaster that divided Ginotta in two.
 <!-- Page 121 -->
 
-"Sooner or later it has to happen, [don't let too much time go by](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#troppotempo). Besides, at night you won't notice as much..." Daniel had said, regretting the stupid joke. 
+"Sooner or later it has to happen, [don't let too much time go by](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#troppotempo). Besides, at night you won't notice it as much..." Daniel had said, regretting the stupid joke. 
 
 And instead, that white line in the still-clear evening with its full moon seemed phosphorescent and bloody like a just-inflicted wound. They saw her just as they crossed the avenue of beech trees and arrived at the courtyard. She seemed to be digging up the ground and stripping the old stones from the farmhouse. And beyond that knife wound they saw the pile of furniture. Giulio suppressed a curse as the two girls turned to Daniel with a questioning look.
 
