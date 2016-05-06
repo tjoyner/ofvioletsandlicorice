@@ -11,7 +11,7 @@ He'd gone on for hours, maybe two, maybe three, until he felt tired, confused by
 
 Now, in broad daylight, he'd knocked on Nicole's door. She was awake, and had asked Silvio to call her mother in Paris.
 
-"I'll say that I'm fine. Why? If she'll let me go to Tokyo. Maria asked me if I'd like to go to Tokyo. I've never seen Japan. You'll let me go to Tokyo, right?"
+"I'll say that I'm fine. Why? To see if she'll let me go to Tokyo. Maria asked me if I'd like to go to Tokyo. I've never seen Japan. You'll let me go to Tokyo, right?"
 
 Daniel sat down in the cretonne armchair, near the window.
 <!-- Page 128 -->
@@ -22,7 +22,7 @@ He hadn't expected that request.
 
 He'd taken the easy road and felt ashamed. He'd let her do whatever she wanted and the results had certainly arrived. But it was hard to choose 'no,' once you got off on the wrong foot. He said, "We don't know much about Maria... Japan is far away..."
 
-She laughed and threw her arms around his neck: "Japan is far away and we don't know much about Maria, Dad... but what do you know about where I go, every day, and with whom?"
+She laughed and threw her arms around his neck. "Japan is far away and we don't know much about Maria, Dad... but what do you know about where I go, every day, and with whom?"
 
 Daniel wanted to tell her that he knew that, he knew that very well. He'd seen the result. But he said nothing. He let himself be taken into the embrace and closed his eyes. He couldn't remember when his daughter had embraced him so fondly and happily. He felt stunned, while Flop joined their embrace, fumbling with his paws on her calves and yelping.
 
@@ -63,7 +63,7 @@ Daniel smiled. "Just a minute. It's not that simple. Amalia isn't crazy, she's j
 
 Daniel got up from the table, nervously. Then he sat down. He didn't know what to say except that everything seemed to be plunging into absurdity.
 
-Nicole arrived to break the silence, pouting, saying: "As usual, at the beginning it was 'no.' By the end of the call, she said that she would discuss it with you and then decide. I was wrong to tell her that Maria took care of the wines for her father. She immediately thought it was a conspiracy between you two to get me away from her."
+Nicole arrived to break the silence, pouting, saying, "As usual, at the beginning it was 'no.' By the end of the call, she said that she would discuss it with you and then decide. I was wrong to tell her that Maria took care of the wines for her father. She immediately thought it was a conspiracy between you two to get me away from her."
 
 This time, Daniel laughed. He said, "It would have been better to tell her that Maria was a dancer in a club, for Christ's sake, or a bouncer at a gay disco. Why did you have to tell her she dealt with wine?"
 <!-- Page 130 -->
