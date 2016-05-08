@@ -7,7 +7,7 @@ He looked at Amalia, her face was drawn, with fine lines crossing her cheeks and
 
 "I did a bullshit thing last night. I know it. And it won't be the last time, if the drama continues. And therefore, in some way, it has to stop."
 
-She looked at Daniel, she didn't have the look of someone asking for forgiveness, but said: "Or the next one will be worse. Do you have any advice?"
+She looked at Daniel, she didn't have the look of someone asking to be forgiven, but said: "Or the next time will be worse. Do you have any advice?"
 
 Amalia looked at Daniel. There was boldness in her eyes, [the request must have cost her in misguided pride](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#malinteso). But in their light there were also reflections of the softness and apprehension of a childlike gaze, frightened.
 
@@ -16,9 +16,9 @@ Fearing that Daniel didn't have an answer, she added, "I should give up my half 
 
 Daniel shook his head.
 
-"Of course not. Even in death, I'd rather leave it to the priests. Of course not. But then how do I get the other half back? Certainly not by going to lawyers or making an insanity plea for my jerk of a brother. And don't tell me to make him a monetary offer. I know that even what's in the Bank of Alba wouldn't be enough money. I could name a figure that is neither in the heaven nor in the sea, a figure that Baravalle knows very well that I don't have. And then what?"
+"Of course not. Even in death, I'd rather leave it to the priests. Of course not. But then how do I get the other half back? Certainly not by going to lawyers or making an insanity plea for my jerk of a brother. And don't tell me to make him a monetary offer. I know that even what's in the Bank of Alba wouldn't be enough money. I could name a figure that is [neither in the heaven nor in the sea](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#cielomare), a figure that Baravalle knows very well that I don't have. And then what?"
 
-Amalia turned to look at Daniel, and this time he saw that there was a different light in her eyes, like flashes of malice, or more: of cruelty.
+Amalia turned to look at Daniel, and this time he saw that there was a different light in her eyes, like flashes of malice, or worse: of cruelty.
 
 "I want to recover Ginotta using the same weapons."
 
@@ -32,7 +32,7 @@ Amalia turned to look at Daniel, and this time he saw that there was a different
 
 Daniel said nothing, looked at her. He knew he was looking at her with a blank, or maybe just tired, expression. He got up from the table, went behind the bar, took a bottle of [Nonino](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#nonino) and poured two fingers in one glass, and two fingers in another. He tossed it down to feel the fire in his throat, he wanted to extinguish the question that he was about to ask: "Amalia, do you know how to play poker?"
 
-He watched her take her glass and drink it in one gulp. Then he heard her voice yelling "No. No, I don't know how to play!"
+He watched her take her glass and drink it in one gulp. Then he heard her voice cry out, "No. No, I don't know how to play!"
 
 Daniel couldn't tell if she was laughing or crying. He had turned around to go back to sit at the table.
 <div style="text-align: center">
