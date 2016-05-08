@@ -85,7 +85,7 @@ Breadsticks
 
 <h2>Chapter 18</h2>
 Tea &ndash; *He didn't know why he'd asked for tea, possibly because he didn't want to drink water and it was too early to ask for a glass of white.*  
-Nonino &ndash; *...two fingers... he tossed it down to feel the fire in his throat, he wanted to extinguish the question that he was about to ask.*  
+[Nonino](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#nonino) &ndash; *...two fingers... he tossed it down to feel the fire in his throat, he wanted to extinguish the question that he was about to ask.*  
 
 <h2>Chapter 20</h2>
 Tagiatelle, etc. &ndash; *Two tagliatelle, with some Gemma," said Luciano, "listen... we've climbed into the dark Langhe..."*
