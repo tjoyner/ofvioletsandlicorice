@@ -72,6 +72,7 @@ Pastis &ndash; *[He] orders an aperitif, a Pastis. He knows it's early and that 
 Sandwiches, etc. &ndash; *It went better at Sillano, where the small sandwiches of butter and anchovies, peppers and artichokes, salami and butter, and [insalata russa](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#insalatarussa), had just been made and placed, fresh and fragrant, on the shelves of the counter.*  
 Tomato juice &ndash; but *Eta Beta ordered a sparkling Berlucchi and dived into the miraculous catch.*
 
+
 <h2>Chapter 13</h2>
 Grignolino &ndash; *But now he felt refreshed, maybe because of the Grignolino they were drinking, fresh raspberry, currant, and pepper, giving him a desire for revenge.*  
 Roast beef
