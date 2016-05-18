@@ -22,7 +22,7 @@ Maria shrugged, continuing to caress Nicole's palm with her fingertips.
 
 "If you stay we'll find out," said Nicole, squeezing her hand.
 
-Then they went down to the small piazza in Treiso, where Maria had left the car, and from where, [peak by peak](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dicrestaincresta) the hills gently descended towards Alba. They saw [Monviso](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#monviso) in front of them and Maria said to Nicole, "Look! 'Paramount'."
+Then they went down to the small piazza in Treiso, where Maria had left the car, and from where, [summit by summit](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dicrestaincresta) the hills gently descended towards Alba. They saw [Monviso](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#monviso) in front of them and Maria said to Nicole, "Look! 'Paramount'."
 
 Nicole looked and responded, "It's true, it resembles it. But it's too far from Hollywood."
 

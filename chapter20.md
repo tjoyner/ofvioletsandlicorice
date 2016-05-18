@@ -1,11 +1,11 @@
 <!-- Pages 137-139 -->
-"How do you feel?" asked Luciano. But the question didn't need an answer, so he continued, looking at him in the rearview mirror with the gaze of someone who could understand how Daniel was feeling: "Worse than if it were your stuff, right?" and then: "This is still the old Langhe, where they celebrate honor or a joke gone too far with the madness of the walls and of the earth. The rest is gone. Nothing else, just money disguised as vineyards and democracy disguised as communism."
+"How do you feel?" asked Luciano. But the question didn't need an answer, so he continued, looking at him in the rearview mirror with the gaze of someone who could understand how Daniel was feeling. "Worse than if it were your stuff, right?" and then: "This is still the old Langhe, [where we celebrate honor or a joke gone too far with the madness of the walls and of the earth](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#conlafollia). The rest is gone. Nothing left, just money disguised as vineyards and democracy disguised as communism."
 
 Luciano fell silent, then said, "Does it disturb you if I talk?"
 
 Daniel shook his head, he felt the sweat on his hands and the dryness of his throat. He rubbed his hands on his pants and swallowed. He hadn't followed what Luciano was saying, to him the words seemed to arrive like leaves whipped by the wind, fragments of the memory of something that had already been repeated countless times. He just had to go and taste a bit of wine and nothing else. That was the challenge, with his palate and his nose and his experience. Nothing else. And if there was more, it wasn't the time to remember it. 
 
-"On my terms, Frenchman..." Baravalle had said. And he had accepted, without looking at Amalia. He had looked at her just before, before going to accept the challenge: bottles instead of cards, he instead of Amalia. On his terms: wines, vintages, terrain. He would choose.
+"On my terms, Frenchman..." Baravalle had said. And he had accepted, without looking at Amalia. He had looked at her just before, before going to accept the challenge: bottles instead of cards, he instead of Amalia. On his terms: wines, vintages, terrain. Baravalle would choose.
 
 Then he hadn't looked at Amalia anymore. He didn't want her eyes or her smell to disturb him. He had telephoned Luciano to come and get him and take him into the hills, with no destination in mind, just to rinse out his eyes and open up his nose.
 <!-- Page 138 -->
@@ -14,15 +14,15 @@ Then he hadn't looked at Amalia anymore. He didn't want her eyes or her smell to
 
 Daniel laughed. "Some precautions will be taken, I hope. We think it will be the same producers. There will be something written down... in addition to delivery labels... there's a farm and a lot of land [at stake](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dimezzo)," said Daniel, painfully distracted by the thought that this was not a typical tasting, a typical demonstration in front of an audience more or less competent.
 
-"A big responsibility, you've taken... you may not allow me to ask you why, but whatever your reason is you have all my respect, for what it's worth."
+"It's a big responsibility you've taken... you may not allow me to ask you why, but whatever your reason is you have all my respect, for what it's worth."
 
-Daniel shrugged. He could have responded to him: for a look. Or as he told Nicole: for a kiss. But that wouldn't be enough, that response, neither for Luciano nor for himself. He said: "For the challenge."
+Daniel shrugged. He could have responded to him: for a look. Or as he told Nicole: for a kiss. But that wouldn't be enough, that response, neither for Luciano nor for himself. He said, "For the challenge."
 
 And maybe it was true. Inside that response was also the look and the kiss of Amalia, but it was inside: the look and the kiss of Amalia weren't part of the challenge. Was that so? Daniel didn't want to ask himself that. It would be like trying to solve the mystery of existence, or even, simply, that of the human universe.
 
 He laughed and said, "[We could say that it attracts more snatch than who knows what](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#unpelodifiga). But it's true and it isn't true. Right?"
 
-Luciano was taken aback. He slowed on a curve, then returned his gaze to the rearview mirror, looking for Daniel's eyes.
+Luciano was dumbstruck. He slowed on a curve, then returned his gaze to the rearview mirror, looking for Daniel's eyes.
 
 "I wouldn't say that. Certainly Amalia can put thoughts in your head. That too, of course. But I would go further, believe me. If you thrashed Baravalle, for me it would be like regaining a bit of memory of this land, of how it was. A bit of justice in the world, [to put it grandly](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dirlaallagrande)."
 
