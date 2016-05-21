@@ -14,12 +14,12 @@ So it was expressed by Baravalle and Amalia had accepted. "You have no responsib
 
 Daniel would have preferred that Amalia take her share of the responsibility, and [felt bitter about temperaments that couldn't make concessions](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#amareggio).
 
-"There is responsibility and I feel it," he had responded to Amalia, "you didn't remove it simply by saying that it isn't there, or that it's yours alone..."
+"The responsibility is there and I feel it," he had responded to Amalia, "you didn't remove it from me simply by saying that it isn't there, or that it's yours alone..."
 
 She had smiled: "I know... [but you've got it if it ends well](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#macelhai). That's what I wanted to say."
 <!-- Page 141 -->
 
-Daniel knew that was what she meant, but it was the way things were being said that mattered. He remained silent. They were walking on the side of the road past *Tre Stelle*, towards the junction leading to Neive, it was mid-afternoon and the wind rose up from the valley floor, moistened by the Tanaro river. She had to contact Baravalle and propose a way out of the impasse.
+Daniel knew that was what she meant, but it was the way things were being said that mattered. He remained silent. They were walking on the side of the road past *Tre Stelle*, towards the junction leading to Neive. It was mid-afternoon and the wind rose up from the valley floor, moistened by the Tanaro river. She had to contact Baravalle and propose a way out of the impasse.
 
 "Do you want to ruin your life?" he had asked.
 
@@ -44,7 +44,7 @@ Daniel had laughed: "But yes, there are the labels to talk about. He'll provide 
 
 Silvio had said the same thing to him when they were coming down to the reception to wait for Luciano to take them there. "Entrust the labels to some honest man. Baravalle is a bad loser."
 
-Daniel had nodded without stopping to explain that that part would be seen to by Amalia and Giulio, it was their task to take precautions and guarantee it. [He would take only what he had](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#luiciavrebbe). And also: whatever good that Bacchus or whoever would offer him.
+Daniel had nodded without stopping to explain that that part would be seen to by Amalia and Giulio, it fell on them to take precautions and guarantee it. [He would take only what he had](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#luiciavrebbe). And also: whatever good that Bacchus or whoever would offer him.
 
 The air was warm and aromatic, he detected the scent of peach and would have preferred the previous winter with its patches of snow to stifle the flowering of the apples, the air pristine before the outbreak of spring. He hoped at least that [the bottles had rested at room temperature](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#atemperatura).
 
