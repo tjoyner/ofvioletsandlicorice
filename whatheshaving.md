@@ -69,7 +69,7 @@ A "small plate" and a glass of Roero &ndash; *He asked Daniel if he'd also like 
 <h2>Chapter 10</h2>
 Pastis &ndash; *[He] orders an aperitif, a Pastis. He knows it's early and that surely his head will be pounding.*
 
-Sandwiches, etc. &ndash; *It went better at Sillano, where the small sandwiches of butter and anchovies, peppers and artichokes, salami and butter, and [insalata russa](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#insalatarussa), had just been made and placed, fresh and fragrant, on the shelves of the counter.*  
+Sandwiches, etc. &ndash; *It went better at [Sillano](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#sillano), where the small sandwiches of butter and anchovies, peppers and artichokes, salami and butter, and [insalata russa](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#insalatarussa), had just been made and placed, fresh and fragrant, on the shelves of the counter.*  
 Tomato juice &ndash; but *Eta Beta ordered a sparkling Berlucchi and dived into the miraculous catch.*
 
 
