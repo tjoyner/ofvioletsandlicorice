@@ -3,7 +3,7 @@ Daniel left the *Savona* after going up to his room to get Flop. He passed by th
 
 Daniel righted a few chairs, kicking some shards of glass against the wall, holding Flop, who was nervously sniffing the air.
 
-Where could Amalia be? There was just one place she could have gone to for refuge: Ginotta. He looked at the time. It was midnight, too late to telephone Luciano and ask him to take him to the farm? 
+Where could Amalia be? There was just one place she could have gone to for refuge: Ginotta. He looked at the time. It was midnight, too late to telephone Luciano and ask him to take him to the vineyard? 
 
 He decided to walk there, which wouldn't take more than half an hour. He cut across Piazza Rossetti, went past the cathedral and headed towards Altavilla, with Flop following him, keeping to the side of the road. Occasional cars climbed up, illuminating the road and the vineyards, hitting the cement poles and transforming parts of the vineyard into cemeteries. They also diminished the stars, swallowed by a darkness made of cobalt. 
 
@@ -20,7 +20,7 @@ And another voice answered: "Your half, Amalia!"
 
 "What you did to my brother doesn't count!"
 
-"It counts, oh it counts. He has regularly gambled half the farm. In front of witnesses, Amalia. Resign yourself."
+"It counts, oh it counts. He has regularly gambled half the vineyard. In front of witnesses, Amalia. Resign yourself."
 
 Daniel got up from the steps and went down the stairs. That arrogant voice had to be Baravalle. He came out into the yard and saw him. He was fiddling with a fence that stretched halfway across the yard. Daniel took a few steps toward him and heard the irritated voice of Amalia ask, "And what are you doing here?"
 
@@ -30,7 +30,7 @@ Daniel turned and looked up at the window. He then saw a large white stripe runn
 
 Baravalle looked at him with annoyance, continuing to play with the metal fence.
 
-"I'm on what's mine. Since yesterday evening, this farm is half mine &ndash; land, vineyard, and walls. Who are you?"
+"I'm on what's mine. Since yesterday evening, this estate is half mine &ndash; land, vineyard, and walls. Who are you?"
 
 He went over to meet him, coming out of the patch of light that had hit him in the face. He seemed to recognize him, and said with contempt, "Ah, you're the sommelier from Paris, who's come to teach us how to drink wine."
 
@@ -63,7 +63,7 @@ Daniel looked at the room, it was neat enough, and he said she could come up. Th
 
 Daniel nodded.
 
-"I was at the notary. It's all official, there's a piece of paper, there are witnesses: that wretch of my brother has lost half of our farm. I said to the notary that I'd buy it back, to tell Baravalle to name his price. It came to nothing: he had told him that he'd like to buy the other half from me right away. It was then clear to me that Baravalle still wanted the land of Ginotta."
+"I was at the notary. It's all official, there's a piece of paper, there are witnesses: that wretch of my brother has lost half of our vineyard. I said to the notary that I'd buy it back, to tell Baravalle to name his price. It came to nothing: he had told him that he'd like to buy the other half from me right away. It was then clear to me that Baravalle still wanted the land of Ginotta."
 
 She pressed her face between her hands. 
 
@@ -135,7 +135,7 @@ The owner arrived. He was a young man, thin and tall. He put a beer and a glass 
 
 He sat at the table and asked a boy to get him an iced tea. 
 
-"So Giulio managed to succumb to Baravalle. That beast, that rascal. But I don't see that's it's over... that property is trouble... I don't see that it's over yet. Baravalle will stir up some shit... half the farm is not enough for him... who knows why, but I feel he'll take a false step."
+"So Giulio managed to succumb to Baravalle. That beast, that rascal. But I don't see that's it's over... that property is trouble... I don't see that it's over yet. Baravalle will stir up some shit... half the estate is not enough for him... who knows why, but I feel he'll take a false step."
 
 "During the day he's a veterinarian," Luciano said to Daniel, "he also has a sixth sense..." The two men laughed, while Daniel pursued a thought that was yet unformed, distant. He took the list that Lovera &ndash; that's how Luciano had introduced him &ndash; had put on the table, and gave it a look. There were names and addresses from Merano, Genoa, Rovigo, and Trieste.
 

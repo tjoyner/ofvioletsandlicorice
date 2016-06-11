@@ -56,7 +56,7 @@ He spoke Italian slowly, softly, with an accent from across the Alps. He had a l
 
 Silvio looked at him with an odd curiosity. He took the grass from his hands and rubbed it on his wrist.
 
-"It's used to clean the barrels," he said, raising his wrist toward that big nose.
+"It's used to clean the [Barolo barrels](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#botti)," he said, raising his wrist toward that big nose.
 
 The stranger sniffed, then shook his head. 
 

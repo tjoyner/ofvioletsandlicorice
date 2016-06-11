@@ -3,7 +3,7 @@
 
 Daniel had nodded: "If I don't look at you, if I don't see you, you'll understand. Ok?" He had stroked her cheek, smiling, and added: "I had said to myself, a few peaceful days in Piedmont with my Nicole... and you're seeing a casino..."
 
-"Dad... reclaim the farm, and then we can have a magnum of Coca-Cola..."
+"Dad... reclaim the estate, and then we can have a magnum of Coca-Cola..."
 
 Daniel smiled at her and sniffed the sleeves of his shirt and jacket. He rubbed his nose and swallowed. He felt odorless and had a clean palate. 
 <br/><br/><br/>

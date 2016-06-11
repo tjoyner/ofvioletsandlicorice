@@ -87,7 +87,7 @@ Here, thought Daniel, he had spoken of his most painful problem with a person he
 
 Amalia came out of the store with a boy, both laden with packages. Daniel went to meet her, but she firmly refused to hand over the bags and asked him to open the car.
 
-"We'll go to the farm and take the salami and then you'll go with me back to the *Savona*. You'll want to rest, I imagine..."
+"We'll go to the vineyard and take the salami and then you'll go with me back to the *Savona*. You'll want to rest, I imagine..."
 
 Daniel nodded, he suddenly felt tired.
 <div style="text-align: center">

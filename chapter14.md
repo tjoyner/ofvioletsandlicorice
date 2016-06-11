@@ -80,7 +80,7 @@ Daniel now remembered his wife's illness, and asked, "Yes, my daughter arrived, 
 Above the river bank, some purple iris was beginning to pierce the bushes and grass at the edge of the cornfields. It was a day of warm wind that rose from the plain of Cuneo, after climbing over the small Alps of Bisalta. A wind that brought jitters, and rippled the first leaves of the poplars.
 <!-- Page 116 -->
 
-"Should I wait for you?" Luciano asked, stopping the car under the avenue of beech trees that led to Ginotta. Daniel shook his head and got out, choosing to cross the abandoned vineyard going up to the large farm. The ground was dry, rock hard, the branches of the vines hungry in a tangled web of silk.
+"Should I wait for you?" Luciano asked, stopping the car under the avenue of beech trees that led to Ginotta. Daniel shook his head and got out, choosing to cross the abandoned vineyard going up to the large farmhouse. The ground was dry, rock hard, the branches of the vines hungry in a tangled web of silk.
 
 Daniel, extricating himself with difficulty, reached the yard. Amalia was sitting in front of the rear door. She was wearing a faded, light blue smock. She clutched between her legs a colander for the skins of the potatoes she was peeling.
 

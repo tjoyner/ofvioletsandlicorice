@@ -24,7 +24,7 @@ Beyond the hazelnuts, which Daniel recognized, they crossed the vineyard, now re
 
 <!-- Page 37 -->
 
-"Tell me, Daniel, if you could let a farm go like that..."
+"Tell me, Daniel, if you could let a vineyard go like that..."
 
 "[You've also played a part...](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#youalso)"
 

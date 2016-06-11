@@ -12,7 +12,7 @@ Then he hadn't looked at Amalia anymore. He didn't want her eyes or her smell to
 
 "Who checks that the wine is the right one?" Luciano asked. "Trusting Baravalle is like trusting the government or the Lotto."
 
-Daniel laughed. "Some precautions will be taken, I hope. We think it will be the same producers. There will be something written down... in addition to delivery labels... there's a farm and a lot of land [at stake](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dimezzo)," said Daniel, painfully distracted by the thought that this was not a typical tasting, a typical demonstration in front of an audience more or less competent.
+Daniel laughed. "Some precautions will be taken, I hope. We think it will be the same producers. There will be something written down... in addition to delivery labels... there's a vineyard and a lot of land [at stake](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#dimezzo)," said Daniel, painfully distracted by the thought that this was not a typical tasting, a typical demonstration in front of an audience more or less competent.
 
 "It's a big responsibility you've taken... you may not allow me to ask you why, but whatever your reason is you have all my respect, for what it's worth."
 

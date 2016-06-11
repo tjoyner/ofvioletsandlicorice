@@ -167,7 +167,7 @@ At the bar in the piazza, Luciano ordered a Poretta beer and Daniel asked for a 
 
 Daniel smiled, and said "Why don't the Giacosas siblings take care of Ginotta? Is it a vineyard?"
 
-"A farm above Elvio, below Madonna di Como, there are hectares of vines [along the river](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alongtheriver). There, lightning took their father during a summer storm. Since then Amalia no longer wants to touch the land, and she's also stopped her brother, who instead wants to restore the vineyard and the farm... women, when they get an idea in their heads, it sets like cement..."
+"A vineyard above Elvio, below Madonna di Como, there are hectares of vines [along the river](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#alongtheriver). There, lightning took their father during a summer storm. Since then Amalia no longer wants to touch the land, and she's also stopped her brother, who instead wants to restore the vineyard and the farmhouse... women, when they get an idea in their heads, it sets like cement..."
 
 Daniel slowly drank his glass of Barbaresco, picking at pieces of seasoned Murrazzano [toma](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#tomasorabrus).
 
@@ -303,9 +303,9 @@ Amalia was absent from their discussion. Daniel saw her wandering gaze and suppo
 
 "I don't understand..." Daniel felt embarrassed.
 
-"Two days ago you were there, on all fours under the hazelnut trees in our farm... like a truffle hound."
+"Two days ago you were there, on all fours under the hazelnut trees in our vineyard... like a truffle hound."
 
-Daniel laughed, but not so much for the posture in which he had been seen, but for the coincidence. He'd left the taxi driver on the road to Treiso and was on a side path, walking among willows, poplars, and mulberries, until he came upon a riverbank, always listening to the smells with his nose, and ended up in that small grove, under an abandoned farm that now turned out to be the Ginotta of the two Giacosa siblings, who were at that time his employers and the guardians of a distant tragedy.
+Daniel laughed, but not so much for the posture in which he had been seen, but for the coincidence. He'd left the taxi driver on the road to Treiso and was on a side path, walking among willows, poplars, and mulberries, until he came upon a riverbank, always listening to the smells with his nose, and ended up in that small grove, under an abandoned vineyard that now turned out to be the Ginotta of the two Giacosa siblings, who were at that time his employers and the guardians of a distant tragedy.
 
 "Ah, I understand," he said.
 
@@ -313,7 +313,7 @@ Daniel laughed, but not so much for the posture in which he had been seen, but f
 
 "I was there by chance, I wanted to have a look around, breathe the air of the vineyards. Smell some of the odors..."
 
-"That was our farm... it still is... but we don't live there anymore... it's falling apart... [but trouble](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#maguai) to work it or sell it... my sister..." Giulio didn't finish the sentence, the conversation was difficult in front of a stranger. So Daniel thought as Giulio left the small courtyard and re-entered the bar.
+"That was our estate... it still is... but we don't live there anymore... it's falling apart... [but trouble](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#maguai) to work it or sell it... my sister..." Giulio didn't finish the sentence, the conversation was difficult in front of a stranger. So Daniel thought as Giulio left the small courtyard and re-entered the bar.
 
 Daniel looked at Amalia, who was again distant, far away. The man got up from his chair, said that it was late, thanked her and made arrangements for the next evening. The woman acknowledged him with a nod. Daniel, followed by the dog, went back into the cone of light from the *Tastevin*.
 
