@@ -38,7 +38,7 @@ Coffee at the *Savona* &ndash; *"Memories often need a place where they can be s
 Coffee at Ginotta &ndash; *"Find two more syringes."*
 
 [Bagna Cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), etc. &ndash; *He asked for [bagna cauda](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#bagnacauda), and a plate of [vitello tonnato](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#vitellotonnato) with roasted potatoes. He ordered the house red and, to Flop, who was wedged under the chair, he gave a piece of a breadstick, coarse and uneven.*  
-House red &ndash; *The wine, a light Dolcetto, seemed respectable.*
+House red &ndash; *The wine, a light Dolcetto, seemed respectable.* 
 Cup of fruit and large coffee  
 
 <h2>Chapter 5</h2>
@@ -89,7 +89,7 @@ Tea &ndash; *He didn't know why he'd asked for tea, possibly because he didn't w
 [Nonino](http://ofvioletsandlicorice.tumblr.com/post/129354078274/notes-questions-uncertainties#nonino) &ndash; *...two fingers... he tossed it down to feel the fire in his throat, he wanted to extinguish the question that he was about to ask.*  
 
 <h2>Chapter 20</h2>
-Tagiatelle, etc. &ndash; *Two tagliatelle, with some Gemma," said Luciano, "listen... we've climbed into the dark Langhe..."*
+Tagiatelle, etc. &ndash; *"Two tagliatelle, with some Gemma," said Luciano, "listen... we've climbed into the dark Langhe..."*
 
 <h2>Chapter 22</h2>
 1978 Barolo &ndash; *"...from the Beppe Rinaldi winery"*  
