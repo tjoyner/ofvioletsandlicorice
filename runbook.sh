@@ -1,6 +1,13 @@
-PAN=/C/Users/Tom/AppData/Local/Pandoc/pandoc.exe 
-EBC=/C/Program\ Files/Calibre2/ebook-convert.exe
-DROPBOX='/C/Users/Tom/Documents/My Dropbox/Public'
+source settings.sh
+#PAN location of pandoc.exe 
+#EBC location of Calibre2 ebook-convert.exe
+#DROPBOX
+#PERL
+#CONSUMER_KEY
+#SECRET_KEY
+#TOKEN
+#TOKEN_SECRET
+
 echo "<div style='page-break-before:always;'></div><h1>Inside Dust Jacket</h1><br/>" | cat - insidedustjacket.md > insidedustjacket.md.tmp
 sed -i '/<div style="text-align/,$d' insidedustjacket.md.tmp
 echo "<div style='page-break-before:always;'></div><h1>Back of Dust Jacket</h1><br/>" | cat - backofdustjacket.md > backofdustjacket.md.tmp
@@ -58,17 +65,12 @@ eval set -- $UPDATE_LIST
 while [ ! -z "$1" ]  # while $1 is not empty
 do
   if ! git diff --quiet ${PREV_COMMIT} $2; then
-    /c/perl64/bin/perl ../api/updateblog.pl $1 $2 "$3"
+    ${PERL} ./updateblog.pl $1 $2 "$3"
   else
     echo "$2 did not change"
   fi
   shift 3
 done
-# For title based on chapters and date
-#echo "---" > title.md.tmp
-#echo "title: Of Violets and Licorice, Chapter $LAST_CHAP, `date '+%b %d %Y'`" >> title.md.tmp
-#echo "..." >> title.md.tmp
-#CHAPLIST="title.md insidedustjacket.md.tmp backofdustjacket.md.tmp"
 CHAPLIST="title.md.tmp insidedustjacket.md.tmp backofdustjacket.md.tmp"
 sed "s/xxxx/Chapters 1-$LAST_CHAP, `date '+%b %d %Y'`/" title.md > title.md.tmp
 let i=1
@@ -85,11 +87,8 @@ CHAPLIST="$CHAPLIST notes.html.tmp"
 
 
 $PAN -t epub --epub-cover-image=cover.jpg $CHAPLIST -o $FNAME.epub -V title:""
-#$PAN $CHAPLIST -o $FNAME.pdf -V title:""
 
 "$EBC" $FNAME.epub $FNAME.mobi
-
-#"$EBC" $FNAME.epub $FNAME.pdf --margin-left 25 --margin-right 25 --preserve-cover-aspect-ratio
 
 rm "$DROPBOX"/*.mobi
 rm "$DROPBOX"/*.epub
