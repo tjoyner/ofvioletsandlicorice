@@ -360,7 +360,7 @@ With Giulio watching, he had filled twenty glasses with Favorita and twenty with
 
 The table of Germans was wrong three out of four times, and the other guests didn't do much better. After one taste, the young Japanese woman and the English couple had no doubts. In the end, 13 out of 20 hadn't been able to distinguish a red from a white with their eyes closed, which is how it usually went at a tasting.
 
-The second card that Daniel had thrown on the table was that of the spider web. He had a good young Dolcetto from Ratti in a dirty bottle with cobwebs, and a more modest Dolcetto from Battaglino in a clean bottle, both unlabeled. He asked them to taste and make a judgment about which of the two Dolcettos was better. Almost unanimously, with the exception of the English couple, they chose the Dolcetto in the clean bottle. Daniel was a little disappointed that the beautiful Japanese girl had also stumbled. 
+The second card that Daniel had thrown on the table was that of the spider web. He had a good young Dolcetto from Ratti in a dirty bottle with cobwebs, and a more modest Dolcetto from Battaglino in a clean bottle, both unlabeled. He asked them to taste and make a judgment about which of the two Dolcettos was better. Almost unanimously, with the exception of the English couple, they chose the Dolcetto in the clean bottle. Daniel was a little disappointed that the beautiful Japanese woman had also stumbled. 
 <!-- Page 19 -->
 
 For the third and final card, Daniel had put the same wine in two unlabeled bottles, a white, the Ceretto Blang&egrave;, asking which of the two wines was better. They split almost in half. The English couple turned out to be the winners because they claimed they "didn't know how to choose," thus getting the right answer by default.
@@ -368,11 +368,11 @@ For the third and final card, Daniel had put the same wine in two unlabeled bott
 
 While going down Via Maestra, passing the lighted shop *Donne Vincenti*, containing delicate silver and black dresses that were draped on the female mannequins, top bargains, and pants with loud stripes, Daniel smiled, inhaling large puffs from the first Gauloise of the day. He recalled the faces of disbelief after he'd said the wines were the same. It was then that he'd seen Amalia appear in the room, hands firmly on her hips and with a smile split between satisfaction and defiance, as if she wanted to tell him that she wouldn't have been deceived. Deceived about what? Daniel asked himself, turning into the *Savona* piazza. About the wine? About what?
 
-The bar was open, he sat under the arcades, there was bustle and merriment, music of an Italian summer translated, like almost everywhere, into American tones.
+The bar was open. He sat under the arcades; there was bustle and merriment, music of an Italian summer translated, like almost everywhere, into American tones.
 
 He asked the waiter for a gin and tonic, light. He'd only had a sip of Burgundy, but he wanted to be alert because he had missed a phone call at the close of his second night away from Paris.
 
-He saw the Japanese girl pass by. He waved to her, half-rising from his chair. She saw him, slowed down, smiled at him. Daniel felt obliged to invite her to the table. With some surprise, Daniel saw that she accepted the invitation, coming over and sitting opposite him.
+He saw the young Japanese woman pass by. He waved to her, half-rising from his chair. She saw him, slowed down, smiled at him. Daniel felt obliged to invite her to the table. With some surprise, Daniel saw that she accepted the invitation, coming over and sitting opposite him.
 
 <!-- Page 20 -->
 "My name is Maria Suzuki," she said, awkwardly holding out her hand and bowing her head. "My mother was from Rome."

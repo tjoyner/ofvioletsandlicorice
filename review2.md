@@ -4,15 +4,16 @@ The New Novel by Nico Orengo: Of Violets and Licorice
 
 "Here, where wine is like oil and everyone has to do it better than everyone else."
 
-The first 50 pages of the book are gripping, they have the merit of gluing to the page those who love wine deeply and 
-those who are starting to encounter it in their journeys, those who have been to Langhe and those who would like 
-to go there. References to towns, historical vinewards and producers are perfectly integrated into the narrative, 
-which seems to flow without particular upheavals but which slowly and delicately sketches the story and background, and, above all, is very thought-provoking.
+The first 50 pages of the book are gripping. Those who love wine deeply, those who are starting
+to encounter it on their journeys, and those who have have to Langhe or those who would like to
+go there will be glued to the page. References to towns, historical vinewards and producers are 
+perfectly integrated into the narrative, which seems to flow without particular upheavals 
+and which slowly and delicately sketches the story and background, and, above all, is very thought-provoking.
 
-A French sommelier, Daniel, travels to Alba for a few days for work, and between his wine tasting classes at a local wine bar visits
+A French sommelier, Daniel, travels to Alba for a few days for work, and in-between his wine tastings classes at a local wine bar he visits
 places, crosses landscapes, and above all encounters *human portraits* that fully illustrate the great land that is the Langhe, and
-which convey to the reader that personality, almost surly, introverted, and timid, but blunt, of the people of this land.
-This arises from his encounters with the men and women who will occupy well defined roles in the narrative and who will become more
+which convey to the reader that personality, almost surly, introverted and timid, but blunt, of the people of this land.
+This flows from his encounters with the men and women who will occupy well defined roles in the narrative, and who will become more
 significant, almost upsetting, in the life of our protagonist.
 
 A sommelier, one might say, with an "atypical" perspective toward what, unfortunately, we are used to seeing at times today,
