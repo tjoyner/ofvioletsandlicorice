@@ -6,7 +6,7 @@ Daniel Lorenzi is a French sommelier who is staying for a few days in Alba. He i
 
 Between the lectures and visiting other places and landscapes, readers can completely immerse themselves in the typical atmosphere of the Langhe. And in these travels, one meets various personalities, real "human portraits," each with their own character, their own role in the story and their involvement in (or disruption of) in the life of our sommelier.
 
-Amalia, owner, with her brother Giulio, of the *Tastevin* wine bar and the Ginotta vineyards; Luciano, the driver carrying the French taster up and down the Langhe; Eta Beta, the inscrutable writer; Baravalle, the upstart peasant who, in a game of cards, wins half of Ginotta from Giulio.
+There's Amalia, the owner, with her brother Giulio, of the *Tastevin* wine bar and the Ginotta vineyards; Luciano, the driver carrying the French taster up and down the Langhe; Eta Beta, the inscrutable writer; Baravalle, the upstart peasant who, in a game of cards, wins half of Ginotta from Giulio.
 
 All these characters, however, revolve around the undisputed star of the novel: the wine, with its odors and colors.
 
