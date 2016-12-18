@@ -1,7 +1,7 @@
 source settings.sh
 #PAN location of pandoc.exe 
 #EBC location of Calibre2 ebook-convert.exe
-#DROPBOX
+#DRIVE
 #PERL
 #CONSUMER_KEY
 #SECRET_KEY
@@ -26,9 +26,9 @@ do
     esac
 done
 
-FNAME="ofvioletsandlicorice_ch1_${LAST_CHAP}_`date +%m%d%Y`"
-sed -i "s/779\/ofviolets.*\.mobi/779\/$FNAME.mobi/" book.html
-sed -i "s/779\/ofviolets.*\.epub/779\/$FNAME.epub/" book.html
+FNAME="ofvioletsandlicorice"
+#sed -i "s/779\/ofviolets.*\.mobi/779\/$FNAME.mobi/" book.html
+#sed -i "s/779\/ofviolets.*\.epub/779\/$FNAME.epub/" book.html
 
 UPDATE_LIST="126996872554 insidedustjacket.md  \"Inside Dust Jacket\"
              127000556994 backofdustjacket.md  \"Back of Dust Jacket\"
@@ -92,8 +92,9 @@ $PAN -t epub --epub-cover-image=cover.jpg $CHAPLIST -o $FNAME.epub -V title:""
 
 "$EBC" $FNAME.epub $FNAME.mobi
 
-rm "$DROPBOX"/*.mobi
-rm "$DROPBOX"/*.epub
-cp $FNAME.* "$DROPBOX"/.
+#rm "$DRIVE"/*.mobi
+#rm "$DRIVE"/*.epub
+cp $FNAME.mobi "$DRIVE"/.
+cp $FNAME.epub "$DRIVE"/.
 
 rm *.tmp
